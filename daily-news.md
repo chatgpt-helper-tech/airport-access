@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月12日 13:35:41
+更新时间：2026年7月13日 03:38:31
 
-1. [Badly burned British couple rescued from ravine during Spain wildfires, reports say](https://www.bbc.co.uk/news/articles/cx2x7441762o?at_medium=RSS&at_campaign=rss)
-2. [US senator and close Trump ally Lindsey Graham dies after 'brief and sudden illness'](https://www.bbc.co.uk/news/articles/cvgj25j6nmeo?at_medium=RSS&at_campaign=rss)
-3. [U.K. Police Make New Arrest in Killing of Ex-Lawmaker](https://www.nytimes.com/2026/07/12/world/europe/ann-widdecombe-arrest-uk.html)
-4. [How Putin Turned Japan Into a Den of Spies](https://www.nytimes.com/2026/07/12/world/asia/russia-spies-japan-war-drones-electronics.html)
-5. [Hard-Liners in Iran Want to Keep Fighting America](https://www.nytimes.com/2026/07/12/world/middleeast/iran-united-states-hard-liners.html)
-6. [Inside Herat, Where a Taliban Campaign Targets a Cosmopolitan Outpost](https://www.nytimes.com/2026/07/12/world/asia/taliban-morality-police-herat-protests.html)
-7. [China evacuates nearly two million people as powerful typhoon makes landfall](https://www.bbc.co.uk/news/articles/cdxd3wkp2rzo?at_medium=RSS&at_campaign=rss)
-8. [Typhoon Bavi Hits China, Causing Evacuations, Floods and Flight Delays](https://www.nytimes.com/2026/07/12/world/asia/typhoon-bavi-china.html)
-9. [US launches fresh strikes as Iran closes Strait of Hormuz](https://www.bbc.co.uk/news/articles/cj9gkpp0dkeo?at_medium=RSS&at_campaign=rss)
-10. [Alvarez's 112th-minute goal helps lift Argentina past Switzerland 3-1 and into World Cup semifinals](https://www.npr.org/2026/07/12/nx-s1-5890774/argentina-switzerland-3-1-world-cup-semifinals)
+1. [Live Updates: Cease-Fire Unraveling as U.S. and Iran Trade Strikes Again](https://www.nytimes.com/live/2026/07/12/us/iran-war-trump-hormuz)
+2. [At least 27 killed, eight critically injured in Bangkok bar fire](https://www.bbc.co.uk/news/articles/c24yev53q06o?at_medium=RSS&at_campaign=rss)
+3. [US Senator Mitch McConnell says absence due to fall and pneumonia](https://www.bbc.co.uk/news/articles/cvge2nd611zo?at_medium=RSS&at_campaign=rss)
+4. [US insists Strait of Hormuz is open as it exchanges strikes with Iran](https://www.bbc.co.uk/news/articles/cj9gkpp0dkeo?at_medium=RSS&at_campaign=rss)
+5. [US senator and close Trump ally Lindsey Graham dies after 'brief and sudden illness'](https://www.bbc.co.uk/news/articles/cvgj25j6nmeo?at_medium=RSS&at_campaign=rss)
+6. [What would it mean for Ukraine if it actually starts producing Patriot missiles?](https://www.npr.org/2026/07/12/nx-s1-5887435/what-would-it-mean-for-ukraine-if-it-actually-starts-producing-patriot-missiles)
+7. [Fire breaks out at a pub in Bangkok, killing at least 27 people, officials say](https://www.npr.org/2026/07/12/g-s1-133238/fire-breaks-out-at-a-pub-in-bangkok-killing-at-least-27-people-officials-say)
+8. [Anthony Zurcher: From Trump critic to ally, Lindsey Graham was a political survivor of the Maga era](https://www.bbc.co.uk/news/articles/clyrdn216k2o?at_medium=RSS&at_campaign=rss)
+9. [Lindsey Graham Championed Israel, Even as Wars Eroded American Support](https://www.nytimes.com/2026/07/12/world/middleeast/lindsey-graham-iran-israel-gaza-war.html)
+10. [Sheikh Hamad bin Khalifa, Ruler Who Transformed Qatar, Dies at 74](https://www.nytimes.com/2026/07/12/world/middleeast/sheikh-hamad-bin-khalifa-qatar-dead.html)
 <!-- daily-check end -->
