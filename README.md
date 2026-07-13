@@ -1,6 +1,6 @@
 # 机场推荐 2026：稳定科学上网Clash机场，适合 ChatGPT、流媒体
 
-**内容最后更新：2026年07月03日**
+**内容最后更新：2026年07月13日**
 
 > **快速结论：**
 >
@@ -425,22 +425,15 @@ u1s1 的核心优势是性价比和月付门槛：采用 BGP 三网智能优化 
 > - **完整测评：** [u1s1 机场详细测评](https://gptvpnhelper.com/u1s1/)
 > - **访问提示：** 如果进入网站较慢，可以多尝试几次或稍后重试。
 
-### 晚高峰实测表现
-
-近期不少机场关闭了测速和解锁测试通道，所以这次主要用 **晚高峰 YouTube 4K 播放** 和 **Speedtest 香港节点** 来替代传统解锁测试。这两个场景更接近普通用户的真实使用：一个看流媒体持续播放能力，一个看基础延迟和上下行稳定性。
-
-- **YouTube 晚高峰 4K：** 实测播放分辨率为 `3840x2160@25fps`，AV1 编码，连接速率约 `219410 Kbps`，约等于 219Mbps；缓冲约 16.48 秒，总帧数 3112，仅丢帧 4 帧，丢帧率约 0.13%。测试时间约晚上 22:04，属于晚高峰时段，4K 播放表现很流畅。
-- **Speedtest 香港 1010：** 下载约 56.3Mbps，上传约 42.3Mbps，延迟 48ms，抖动 0ms。Speedtest 数值不算夸张，但延迟波动很小，结合 YouTube 4K 样本看，实际流媒体体验比单纯测速数值更有参考意义。
-
 ### 实测图
 
-**YouTube 晚高峰 4K 实测｜u1s1（2026-05-02）**
+**节点测速｜u1s1（2026-07-13 实测）**
 
-<img src="https://img.petnooko.com/2026/05/429c6187e58ad547edd11732175ca06f.webp" alt="u1s1 机场 YouTube 晚高峰 4K 码率实测图" loading="lazy" />
+<img src="https://img.petnooko.com/2026/07/016da3abd3244f36b3abef2b8d72b6f0.webp" alt="u1s1 机场节点测速图（2026-07-13）" loading="lazy" />
 
-**Speedtest 香港节点实测｜u1s1（2026-05-02）**
+**节点解锁｜u1s1（2026-07-13 实测）**
 
-<img src="https://img.petnooko.com/2026/05/08e463be59d9bac1f5288bd3b643bcc8.webp" alt="u1s1 机场 Speedtest 香港 1010 晚高峰测速图" loading="lazy" />
+<img src="https://img.petnooko.com/2026/07/0b3b439ed1d9e81cec6947576c68b506.webp" alt="u1s1 机场节点解锁图（2026-07-13）" loading="lazy" />
 
 ---
 
