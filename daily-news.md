@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月14日 10:37:52
+更新时间：2026年7月14日 13:30:26
 
-1. [Yemen's Houthis launch missiles at Saudi Arabia after strikes on Sanaa airport](https://www.bbc.co.uk/news/articles/cp9ldle3d3xo?at_medium=RSS&at_campaign=rss)
-2. [The U.S. is set to reinstate a blockade over the Strait of Hormuz](https://www.npr.org/2026/07/14/nx-s1-5893257/us-iran-updates)
-3. ['If we die, we die together': Wife of man nearly sucked out of Ryanair plane speaks of ordeal](https://www.bbc.co.uk/news/articles/cly8yjnw822o?at_medium=RSS&at_campaign=rss)
-4. [U.S. Strikes Iran for 3rd Night, in Return to Open Conflict](https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz)
-5. [Death toll from a Bangkok music bar fire rises to 30, dozens remain in hospital](https://www.npr.org/2026/07/14/g-s1-133425/death-toll-bangkok-fire)
-6. [Bangkok fire investigation finds locked doors and flammable decor as deaths climb to 30](https://www.bbc.co.uk/news/articles/clyxyzlp9p2o?at_medium=RSS&at_campaign=rss)
-7. [Australian police reveal unseen photos 25 years after British backpacker murder](https://www.bbc.co.uk/news/articles/crlwln0gkzlo?at_medium=RSS&at_campaign=rss)
-8. [Colombian national killed by ICE agent during operation in Maine](https://www.bbc.co.uk/news/articles/c2ly580kxnko?at_medium=RSS&at_campaign=rss)
-9. [Identity of Sydney daycare worker facing 329 child abuse offences revealed](https://www.bbc.co.uk/news/articles/c5yzy0lpello?at_medium=RSS&at_campaign=rss)
-10. [Pakistan urges restraint as its Mideast deal unravels](https://www.npr.org/2026/07/13/nx-s1-5891718/pakistan-urges-restraint-as-its-mideast-deal-unravels)
+1. [U.S. and Iran Reignite War Over Strait of Hormuz](https://www.nytimes.com/live/2026/07/14/world/iran-war-trump-hormuz)
+2. [In Bangkok Bar Blaze, Signs of Fatal Lapses Repeated Across the World](https://www.nytimes.com/2026/07/14/world/asia/bangkok-bar-fire-flammable-foam.html)
+3. [U.S. to reinstate Hormuz blockade. And, states sue over Paramount-Warner deal](https://www.npr.org/2026/07/14/g-s1-133443/up-first-newsletter-iran-strait-hormuz-maine-ice-shooting-paramount-warner-bros-merger)
+4. [Ukraine Wants to Make Its Own Antimissile System, Not Just Patriots](https://www.nytimes.com/2026/07/14/world/europe/ukraine-fire-point-patriot-missiles.html)
+5. [Colombian national killed by ICE agent during operation in Maine](https://www.bbc.co.uk/news/articles/c2ly580kxnko?at_medium=RSS&at_campaign=rss)
+6. [Europe, Flexing Muscle in Ukraine, Is Still on Sidelines in Iran](https://www.nytimes.com/2026/07/14/world/europe/macron-trump-bastille-day-military-parade.html)
+7. [China Purges Top Official Over Corruption and Sex Charges](https://www.nytimes.com/2026/07/14/world/asia/china-expels-politburo-official-sex-corruption.html)
+8. [Yemen's Houthis launch missiles at Saudi Arabia after strikes on Sanaa airport](https://www.bbc.co.uk/news/articles/cp9ldle3d3xo?at_medium=RSS&at_campaign=rss)
+9. [The U.S. is set to reinstate a blockade over the Strait of Hormuz](https://www.npr.org/2026/07/14/nx-s1-5893257/us-iran-updates)
+10. ['If we die, we die together': Wife of man nearly sucked out of Ryanair plane speaks of ordeal](https://www.bbc.co.uk/news/articles/cly8yjnw822o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
