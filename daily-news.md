@@ -1,10 +1,10 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月14日 02:31:21
+更新时间：2026年7月14日 03:32:24
 
-1. [UAE condemns Iran's 'brazen' attack on tankers as US launches fresh strikes](https://www.bbc.co.uk/news/articles/c8d2vn38dy1o?at_medium=RSS&at_campaign=rss)
-2. [Live Updates: U.S. Forces Begin New Round of Strikes on Iran](https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz)
+1. [Live Updates: U.S. Resumes Striking Iran, in Return to Open Conflict](https://www.nytimes.com/live/2026/07/13/world/iran-war-us-trump-hormuz)
+2. [UAE condemns Iran's 'brazen' attack on tankers as US launches fresh strikes](https://www.bbc.co.uk/news/articles/c8d2vn38dy1o?at_medium=RSS&at_campaign=rss)
 3. [Colombian national killed by ICE agent during operation in Maine](https://www.bbc.co.uk/news/articles/c2ly580kxnko?at_medium=RSS&at_campaign=rss)
 4. [Identity of Sydney daycare worker facing 329 child abuse offences revealed](https://www.bbc.co.uk/news/articles/c5yzy0lpello?at_medium=RSS&at_campaign=rss)
 5. ['Hero, legend, sweetheart': Tributes to Jurassic Park actor Sam Neill, who has died aged 78](https://www.bbc.co.uk/news/articles/cy06e5e1lygo?at_medium=RSS&at_campaign=rss)
