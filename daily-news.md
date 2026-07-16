@@ -1,10 +1,10 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月16日 04:39:08
+更新时间：2026年7月16日 05:33:29
 
-1. [US launches fresh strikes on Iran as Trump warns Tehran it 'better behave'](https://www.bbc.co.uk/news/articles/c9323zgq6wvo?at_medium=RSS&at_campaign=rss)
-2. [Iran War Live Updates: U.S. and Iran Exchange Strikes for 5th Straight Day](https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz)
+1. [Iran War Live Updates: U.S. and Iran Exchange Strikes for 5th Straight Day](https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz)
+2. [US launches fresh strikes on Iran as Trump warns Tehran it 'better behave'](https://www.bbc.co.uk/news/articles/c9323zgq6wvo?at_medium=RSS&at_campaign=rss)
 3. [US military to start screening for testosterone deficiency, Hegseth says](https://www.bbc.co.uk/news/articles/cn0nlx18rz0o?at_medium=RSS&at_campaign=rss)
 4. [New monkey species with orange lips found 'hiding' in DR Congo forest](https://www.bbc.co.uk/news/articles/c15y5wgj4x8o?at_medium=RSS&at_campaign=rss)
 5. [Families of 43 victims await verdict in Genoa bridge disaster](https://www.bbc.co.uk/news/articles/c20y00712ezo?at_medium=RSS&at_campaign=rss)
