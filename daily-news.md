@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月15日 15:39:49
+更新时间：2026年7月16日 02:30:53
 
-1. [Iran War Live Updates: U.S. and Iran Exchange Strikes for Fifth Straight Day](https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz)
-2. [He Has a $25 Million Bounty on His Head but Is Also a U.S. Partner in Venezuela](https://www.nytimes.com/2026/07/15/world/americas/us-bounty-diosdado-cabello-venezuela.html)
-3. [Special police team to investigate killing of an anti-migrant leader in South Africa](https://www.bbc.co.uk/news/articles/cm2d2qlgj71o?at_medium=RSS&at_campaign=rss)
-4. [France Is Set to Allow Assisted Dying](https://www.nytimes.com/2026/07/15/world/europe/france-law-assisted-dying.html)
-5. [As Argentina Tries to Win the World Cup, the Rest of Latin America Cheers Against It](https://www.nytimes.com/2026/07/15/world/americas/argentina-world-cup-semifinals.html)
-6. [For Israel, the U.S.-Iran Hostilities Have Created an Uneasy Limbo](https://www.nytimes.com/2026/07/15/world/middleeast/israel-us-iran-trump.html)
-7. [For Argentina, a World Cup Semifinal Against England Isn’t Just Soccer](https://www.nytimes.com/2026/07/15/world/americas/argentina-england-rivalry-world-cup.html)
-8. [China's economy grows 4.3% in Q2, slowest since late 2022](https://www.npr.org/2026/07/15/g-s1-133672/chinas-economy-grows-4-3-in-q2-slowest-since-late-2022)
-9. [Old rivals, new battle: Argentina and England clash in World Cup Semifinal](https://www.npr.org/2026/07/15/nx-s1-5893686/old-rivals-new-battle-argentina-and-england-clash-in-world-cup-semifinal)
-10. [Australia to Impose Energy and Water Guardrails on Data Centers Amid A.I. Boom](https://www.nytimes.com/2026/07/15/world/australia/albanese-artificial-intelligence-guardrails.html)
+1. [Iran War Live Updates: U.S. and Iran Exchange Strikes for 5th Straight Day](https://www.nytimes.com/live/2026/07/15/world/iran-war-trump-hormuz)
+2. [US launches fresh strikes on Iran as Trump warns Tehran it 'better behave'](https://www.bbc.co.uk/news/articles/c9323zgq6wvo?at_medium=RSS&at_campaign=rss)
+3. [New monkey species with orange lips found 'hiding' in DRC forest](https://www.bbc.co.uk/news/articles/c15y5wgj4x8o?at_medium=RSS&at_campaign=rss)
+4. [Families of 43 victims await verdict in Genoa bridge disaster](https://www.bbc.co.uk/news/articles/c20y00712ezo?at_medium=RSS&at_campaign=rss)
+5. [Argentina face action after waving Falklands banner](https://www.bbc.co.uk/sport/football/articles/c935pgr4dklo?at_medium=RSS&at_campaign=rss)
+6. [For Argentina, a World Cup Semifinal Against England Isn’t Just Soccer](https://www.nytimes.com/2026/07/15/world/americas/argentina-england-rivalry-world-cup.html)
+7. [US military to start screening for testosterone deficiency, Hegseth says](https://www.bbc.co.uk/news/articles/cn0nlx18rz0o?at_medium=RSS&at_campaign=rss)
+8. [Why is it so hard for the U.S. to win wars?](https://www.npr.org/2026/07/15/nx-s1-5844921/why-is-it-so-hard-for-the-u-s-to-win-wars)
+9. [Sen. Shaheen discusses new Russia sanctions bill](https://www.npr.org/2026/07/15/nx-s1-5893688/sen-shaheen-discusses-new-russia-sanctions-bill)
+10. [Russian attacks kill 14 as Ukraine hits Black Sea oil tankers](https://www.bbc.co.uk/news/articles/c8929jv8kdzo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
