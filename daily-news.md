@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月20日 08:30:18
+更新时间：2026年7月20日 11:38:38
 
-1. [Another U.S. Service Member Is Killed as Iran War Expands](https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz)
-2. [Tehran and Washington Face a ‘Wake Up Moment’ Over the War](https://www.nytimes.com/2026/07/20/world/middleeast/iran-united-states-escalation.html)
-3. [India’s CJP Party Leads Protest March to Parliament After Exam Leaks](https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html)
-4. [Five of the Main Challenges Awaiting Andy Burnham When He Becomes Prime Minister](https://www.nytimes.com/2026/07/20/world/europe/britain-new-prime-minister-challenges.html)
-5. [Food delivery rider wins China's top literary prize](https://www.bbc.co.uk/news/articles/c5ydr3xd0kvo?at_medium=RSS&at_campaign=rss)
-6. [Test that found source of US explosive diarrhoea outbreak was false positive, health officials say](https://www.bbc.co.uk/news/articles/c4gw9n1kx9do?at_medium=RSS&at_campaign=rss)
-7. [Norway opens new memorial for victims of 2011 massacre](https://www.bbc.co.uk/news/articles/c07r9m22gyyo?at_medium=RSS&at_campaign=rss)
-8. [US soldier killed and one injured after Iranian attack in Iraq](https://www.bbc.co.uk/news/articles/cgk417jp83po?at_medium=RSS&at_campaign=rss)
-9. [Russia Batters Kyiv in One of the Largest Missile Assaults of the War](https://www.nytimes.com/2026/07/19/world/europe/russia-ukraine-strikes.html)
-10. [Russia launches major ballistic missile attack on Ukrainian cities](https://www.bbc.co.uk/news/articles/c2el7xpnzrpo?at_medium=RSS&at_campaign=rss)
+1. [Zelensky Faces Pressure to Remove Ukraine’s Top General](https://www.nytimes.com/2026/07/20/world/europe/ukraine-zelensky-general-defense-minister.html)
+2. [JD Vance says wife Usha and son 'happy and healthy' after birth of fourth child](https://www.bbc.co.uk/news/articles/cj63kngxpxpo?at_medium=RSS&at_campaign=rss)
+3. [Trump says US strikes hit Iran in 'honour' of American soldiers killed](https://www.bbc.co.uk/news/articles/cly52xzjd3qo?at_medium=RSS&at_campaign=rss)
+4. [At least 930 people have died in Congo's Ebola outbreak](https://www.npr.org/2026/07/20/g-s1-134548/ebola-congo-deaths)
+5. [Another U.S. Service Member Is Killed as Iran War Expands](https://www.nytimes.com/live/2026/07/19/world/iran-war-strikes-trump-hormuz)
+6. [U.S. and Iran launch new strikes after 3 U.S. service members are killed](https://www.npr.org/2026/07/20/nx-s1-5900601/us-iran-updates)
+7. [Boy, 13, dies during World Cup celebrations in Spain](https://www.bbc.co.uk/news/articles/c0qvdy0jv05o?at_medium=RSS&at_campaign=rss)
+8. [India’s CJP Party Leads Protest March to Parliament After Exam Leaks](https://www.nytimes.com/2026/07/20/world/asia/india-protest-cjp-cockroach-jantar-mantar.html)
+9. [Ukraine War Momentum Helps Spur Interest in Postwar Investment](https://www.nytimes.com/2026/07/20/world/europe/ukraine-post-war-reconstruction.html)
+10. [Keir Starmer resigns, Andy Burnham becomes U.K. prime minister](https://www.npr.org/2026/07/19/nx-s1-5895993/andy-burnham-prime-minister-keir-starmer)
 <!-- daily-check end -->
