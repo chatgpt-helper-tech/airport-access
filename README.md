@@ -1,18 +1,22 @@
 # 机场推荐 2026：稳定科学上网Clash机场，适合 ChatGPT、流媒体
 
-**内容最后更新：2026年07月13日**
+**内容最后更新：2026年07月21日**（推荐名单长期跟踪、动态调整）
 
 > **快速结论：**
 >
-> - 第一次买主力机场、想少折腾：优先看 **BoostNet**。
-> - 更看重 IEPL 线路和晚高峰视频：优先看 **悠兔**。
-> - 预算敏感、设备多、想要低价 IEPL / 流媒体性价比：优先看 **小蜜蜂**。
-> - 想月付试用、轻量 AI 和日常备用：再看 **u1s1**。
-> - 团队办公、高预算、能接受年付门槛：再看 **WgetCloud**。
+> - 第一次买主力机场、想少折腾：优先看 **[BoostNet](https://888.boostqz.com/?path=register&code=kKMFirlm)**。
+> - 更看重 IEPL 线路和晚高峰视频：优先看 **[悠兔](https://999.youtu0.com/?path=register&code=erkQTmbM)**。
+> - 预算敏感、设备多、想要低价 IEPL / 流媒体性价比：优先看 **[小蜜蜂](https://inva.xmfaff.cc/register?aff=oClLBb5A)**。
+> - 想月付试用、轻量 AI 和日常备用：再看 **[u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c)**。
+> - 团队办公、高预算、能接受年付门槛：再看 **[WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)**。
 >
 > 除 WgetCloud 当前偏年付外，其余几家都建议**先用月付或短周期试一轮**，确认本地运营商、常用节点、AI 工具和流媒体都没问题，再上长期套餐——这样试错成本最低。
 
 如果你正在找 **精品机场推荐**、**稳定机场服务**，需要稳定访问 ChatGPT / Claude / GitHub Copilot / Cursor 等 AI 工具，以及 YouTube / Netflix / Disney+ / TikTok 等流媒体，可以先按下面的快速选择表定方向，再看对应机场的详细评测和套餐。每家都附了注册入口，看准了直接点进去即可。
+
+**直接跳到机场评测：** [BoostNet](#boostnet)（综合主力）· [悠兔](#youtu)（高端 IEPL）· [小蜜蜂](#xiaomifeng)（低价多设备）· [u1s1](#u1s1)（月付试用）· [WgetCloud](#wgetcloud)（企业级稳定）
+
+**其他章节：** [核心能力对比](#compare-table) · [为什么只推荐五家](#why-five) · [按场景怎么选](#scene-guide) · [流量怎么选](#traffic-guide) · [官方客户端还是 Clash](#beginner-client) · [购买前检查清单](#purchase-checklist) · [评估方法](#evaluation-method) · [常见问题 FAQ](#faq)
 
 <a id="quick-choice"></a>
 
@@ -30,13 +34,13 @@
 
 ## 五家稳定机场核心能力对比
 
-| 机场 | 线路 / 协议 | AI 工具 | 流媒体 | 设备 / 使用限制 | 主要注意点 |
-| --- | --- | --- | --- | --- | --- |
-| **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 不提供退款；仅限中国大陆使用，新疆不可用 |
-| **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 禁 BT / P2P / PT；小白用户优先官方客户端 |
-| **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 |
-| **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意 |
-| **WgetCloud** | 广州 BGP / IEPL / Trojan + Shadowsocks | 优质 / 精品档更适合 ChatGPT、Claude、Copilot、Cursor | 全球流媒体，优质 / 精品档更合适 | 基础 / 优质 / 精品档分别 3 / 4 / 5 个在线 IP | 当前年付门槛较高，普通个人不建议一开始直接买 |
+| 机场 | 线路 / 协议 | AI 工具 | 流媒体 | 设备 / 使用限制 | 主要注意点 | 注册入口 |
+| --- | --- | --- | --- | --- | --- | --- |
+| **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 不提供退款；仅限中国大陆使用，新疆不可用 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
+| **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 禁 BT / P2P / PT；小白用户优先官方客户端 | [立即注册](https://999.youtu0.com/?path=register&code=erkQTmbM) |
+| **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
+| **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
+| **WgetCloud** | 广州 BGP / IEPL / Trojan + Shadowsocks | 优质 / 精品档更适合 ChatGPT、Claude、Copilot、Cursor | 全球流媒体，优质 / 精品档更合适 | 基础 / 优质 / 精品档分别 3 / 4 / 5 个在线 IP | 当前年付门槛较高，普通个人不建议一开始直接买 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
 <a id="why-five"></a>
 
@@ -47,6 +51,14 @@
 - **总量控制，不做机场大全。** 本文长期只保留少量精品机场，当前只推荐五家，不把几十家机场堆给你制造选择困难。
 - **长期跟踪，动态调整。** 推荐名单会根据线路稳定性、入口维护、客服响应、套餐变化、用户反馈和近期实测结果持续调整——出问题的会下调或移除。
 - **稳定优先于低价。** 本文主要面向长期使用 AI 工具、流媒体、远程办公和跨境业务的用户，不以“最低价”作为核心推荐标准。
+
+**近期跟踪记录：**
+
+- **2026-07-13：** 更新 u1s1、BoostNet、悠兔最新节点测速与解锁实测图。
+- **2026-05-02：** 更新 u1s1 套餐结构与晚高峰 YouTube 4K 实测样本。
+- **2026-04-27：** WgetCloud 关闭短周期套餐、转为年付为主，已在评测中标注门槛变化；同日更新悠兔晚高峰 YouTube 8K HDR 实测。
+
+> 这份名单不是一次性写完就不动的软文。每次线路、套餐、入口或客服出现明显变化，我们都会回来更新——出问题的机场会被下调排序或直接移除。
 
 <a id="selection-map"></a>
 
@@ -66,51 +78,17 @@
 
 ## 按使用场景怎么选机场
 
-不确定自己属于哪一类？先对号入座，再往下看对应机场的详细评测。
+不确定自己属于哪一类？先在下表对号入座，再往下看对应机场的详细评测。
 
-### 适合 ChatGPT / Claude / Cursor / GitHub Copilot 的机场
+| 使用场景 | 首选 | 备选 | 一句话理由 |
+| --- | --- | --- | --- |
+| **AI 工具**（ChatGPT / Claude / Cursor / Copilot / Gemini / Codex） | BoostNet、悠兔 | 小蜜蜂（低价多设备）、u1s1（月付试水） | 综合主力线登录稳定、日美节点优先，覆盖高频 AI 场景 |
+| **流媒体**（YouTube / Netflix / Disney+ / TikTok / HBO） | 悠兔（晚高峰视频） | BoostNet（AI+流媒体均衡）、小蜜蜂（多设备看剧）、u1s1（低门槛试水） | 悠兔晚高峰 8K HDR 样本突出，其余按预算和设备数分层 |
+| **远程办公 / 跨境电商 / 资料检索** | BoostNet、悠兔 | 小蜜蜂、u1s1（备用线）、WgetCloud（团队） | 重点看入口维护、晚高峰稳定、AI 登录和客服响应 |
+| **预算敏感 / 月付试用** | 小蜜蜂（低价 IEPL） | u1s1（月付低门槛） | 先短周期试水，确认没问题再升级到综合主力 |
+| **团队办公 / 高稳定刚需** | WgetCloud | —— | 多人协作、长时间在线、对售后响应更敏感 |
 
-- **综合主力：** BoostNet 和悠兔更适合作为长期 AI 工具机场，适合 ChatGPT、Claude、GitHub Copilot、Cursor、Google Gemini、OpenAI Codex、Claude Code 等高频使用场景。
-- **低价 IEPL / 多设备：** 小蜜蜂更适合预算敏感、设备较多、希望用 IEPL 线路覆盖日常 AI 和流媒体的人，当前直接使用官方客户端。
-- **月付试用 / 轻量备用：** u1s1 更适合想先用月付低门槛试水的人，适合资料检索、AI 写作、Vibe Coding 和轻量远程办公。
-- **团队办公：** WgetCloud 更适合团队协作、长时间在线和高预算稳定性刚需，普通个人用户通常没必要一开始就年付。
-
-### 适合 YouTube / Netflix / Disney+ / TikTok 的机场
-
-- **晚高峰视频优先：** 悠兔在近期 YouTube 8K HDR 晚高峰样本中表现更突出，适合重度流媒体用户。
-- **AI + 流媒体均衡：** BoostNet 更适合想少折腾、一条线路同时覆盖 AI 工具和流媒体的人。
-- **低价 IEPL / 多设备看剧：** 小蜜蜂更偏流媒体性价比和多设备家庭场景，适合重点验证 Netflix、Disney+、HBO、TikTok 和 YouTube 的实际节点表现。
-- **低门槛月付试水：** u1s1 的月付套餐门槛低，适合先验证 Netflix、Disney+、TikTok 和 YouTube 的实际节点表现。
-
-### 适合远程办公、跨境电商和资料检索的机场
-
-- **个人长期办公：** BoostNet、悠兔优先，重点看入口维护、晚高峰稳定、AI 工具登录和客服响应。
-- **预算敏感或多设备备用：** 小蜜蜂更适合低价 IEPL、多设备家庭和流媒体备用主力；u1s1 更适合做月付试用或第二条备用线路。
-- **团队和业务场景：** WgetCloud 更适合多人协作、专业内容创作、跨境业务和对售后响应更敏感的用户。
-
-### 适合预算敏感和月付试用的机场
-
-预算敏感用户可以先看小蜜蜂的低价 IEPL 套餐；如果更想用月付低门槛先试水，再看 u1s1 的月付 / 低价年包。后续确认自己需要更稳定的综合主力，再升级到 BoostNet 或悠兔。除非已经明确需要企业级稳定方案，否则不建议一开始直接购买 WgetCloud 年付套餐。
-
-<a id="quick-nav"></a>
-
-## 快速导航
-
-- [一分钟快速选择：你该买哪家机场？](#quick-choice)
-- [五家稳定机场核心对比](#compare-table)
-- [我们为什么只推荐这五家？](#why-five)
-- [机场选择三色图](#selection-map)
-- [按使用场景怎么选机场](#scene-guide)
-- [BoostNet：综合主力首推](#boostnet)
-- [悠兔机场：高端 IEPL 长期主力](#youtu)
-- [小蜜蜂机场：低价 IEPL 与多设备流媒体方案](#xiaomifeng)
-- [u1s1 机场：月付试用与轻量备用](#u1s1)
-- [WgetCloud：企业级稳定方案](#wgetcloud)
-- [每月多少流量够用？](#traffic-guide)
-- [新手应该用官方客户端还是 Clash？](#beginner-client)
-- [机场购买前检查清单](#purchase-checklist)
-- [我们如何评估一家机场是否值得推荐](#evaluation-method)
-- [常见问题 FAQ](#faq)
+> 除非已经明确需要企业级稳定方案，否则不建议一开始直接购买 WgetCloud 年付套餐；预算敏感的用户可先用小蜜蜂、u1s1 的月付 / 短周期试一轮，再决定要不要升级到 BoostNet 或悠兔。
 
 ---
 
@@ -640,6 +618,18 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 
 测速图只能作为参考。更有价值的是晚高峰 YouTube / Netflix 持续播放、4K 缓冲速度、ChatGPT / Claude 登录稳定性、常用节点延迟、丢包、客服响应和入口更新速度。单张白天 Speedtest 图或单次 Netflix 解锁截图不能完整代表长期使用体验。
 
+### 买了不好用可以退款吗？
+
+先看清楚各家退款条款再下单：BoostNet 已明确不提供退款服务，其他机场的退款规则也以官网条款为准，不要默认都能退。正因为退款普遍偏严格，才更建议第一次先用月付或短周期试一轮，把试错成本压到最低，确认没问题再上长期套餐。
+
+### 担心机场跑路 / 充值不到账怎么办？
+
+这也是 2026 年以来大家最担心的问题，所以本文把「入口维护、客服响应、公告透明度」放在比低价更靠前的位置。降低风险的几个习惯：优先选月付或短周期、不要一次性充值过长周期、遇到入口打不开先回官网或用官方客户端更新订阅、留意官方公告。名单里的机场一旦出现长期失联或争议增多，我们也会及时下调或移除。
+
+### 一个账号可以几个设备一起用吗？
+
+各家规则不同：BoostNet 常规套餐 5 台同时使用（企业团队套餐 30 台），悠兔默认 5 个设备 / IP，WgetCloud 基础 / 优质 / 精品档分别对应 3 / 4 / 5 个在线 IP，小蜜蜂和 u1s1 套餐侧不限设备数（实际以官网风控规则为准）。设备多、家庭共用优先看小蜜蜂或 u1s1；具体数字以各家评测表和官网当前说明为准。
+
 ### 如果想看更多机场怎么办？
 
 本文只保留少量精品机场推荐。如果你想对比更多机场服务商，可以查看：[机场测评与更多机场信息](https://gptvpnhelper.com/)。
@@ -670,4 +660,4 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 
 ---
 
-内容最后更新：2026年07月03日
+内容最后更新：2026年07月21日
