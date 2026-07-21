@@ -1,6 +1,6 @@
 # 机场推荐 2026：稳定科学上网Clash机场，适合 ChatGPT、流媒体
 
-**内容最后更新：2026年07月21日**（推荐名单长期跟踪、动态调整）
+**内容最后更新：2026年07月21日**
 
 > **快速结论：**
 >
@@ -36,7 +36,7 @@
 
 | 机场 | 线路 / 协议 | AI 工具 | 流媒体 | 设备 / 使用限制 | 主要注意点 | 注册入口 |
 | --- | --- | --- | --- | --- | --- | --- |
-| **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 不提供退款；仅限中国大陆使用，新疆不可用 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
+| **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 仅限中国大陆使用，新疆不可用 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
 | **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 禁 BT / P2P / PT；小白用户优先官方客户端 | [立即注册](https://999.youtu0.com/?path=register&code=erkQTmbM) |
 | **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
 | **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
@@ -66,7 +66,7 @@
 
 <img src="https://img.petnooko.com/2026/04/3baec328ca2d7c75b028a7a31b2da5d1.png" alt="机场选择三色图：稳定、速度、便宜通常难以同时兼得" width="520" loading="lazy" />
 
-这张图基本说透了机场选择里的不可能三角：**稳定、速度、便宜很难同时兼得**。
+机场选择里的不可能三角：**稳定、速度、便宜很难同时兼得**。
 
 - **稳定 + 速度：** 通常意味着线路成本更高，所以价格不会是最低。
 - **稳定 + 便宜：** 往往速度和高峰体验会受到限制。
@@ -82,9 +82,9 @@
 
 | 使用场景 | 首选 | 备选 | 一句话理由 |
 | --- | --- | --- | --- |
-| **AI 工具**（ChatGPT / Claude / Cursor / Copilot / Gemini / Codex） | BoostNet、悠兔 | 小蜜蜂（低价多设备）、u1s1（月付试水） | 综合主力线登录稳定、日美节点优先，覆盖高频 AI 场景 |
-| **流媒体**（YouTube / Netflix / Disney+ / TikTok / HBO） | 悠兔（晚高峰视频） | BoostNet（AI+流媒体均衡）、小蜜蜂（多设备看剧）、u1s1（低门槛试水） | 悠兔晚高峰 8K HDR 样本突出，其余按预算和设备数分层 |
-| **远程办公 / 跨境电商 / 资料检索** | BoostNet、悠兔 | 小蜜蜂、u1s1（备用线）、WgetCloud（团队） | 重点看入口维护、晚高峰稳定、AI 登录和客服响应 |
+| **AI 工具**（ChatGPT / Claude / Cursor / Copilot / Gemini / Codex） | BoostNet | 小蜜蜂 | 综合主力线登录稳定、日美节点优先，覆盖高频 AI 场景 |
+| **流媒体**（YouTube / Netflix / Disney+ / TikTok / HBO） | 悠兔 | BoostNet（AI+流媒体均衡） | 悠兔晚高峰 8K HDR 样本突出，其余按预算和设备数分层 |
+| **远程办公 / 跨境电商 / 资料检索** | BoostNet、悠兔 | 小蜜蜂 | 重点看入口维护、晚高峰稳定、AI 登录和客服响应 |
 | **预算敏感 / 月付试用** | 小蜜蜂（低价 IEPL） | u1s1（月付低门槛） | 先短周期试水，确认没问题再升级到综合主力 |
 | **团队办公 / 高稳定刚需** | WgetCloud | —— | 多人协作、长时间在线、对售后响应更敏感 |
 
@@ -112,7 +112,7 @@
 
 如果你不知道怎么选，BoostNet 的 **200G/月套餐（¥49）** 是最稳妥的默认入口；多设备或高频流媒体用户再考虑 400G/月套餐。
 
-### 为什么继续推荐 BoostNet
+### 为什么推荐 BoostNet
 
 BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：自研客户端省心、三网直连 IEPL 稳定、AI 和流媒体都能覆盖，客服响应也比较快。对第一次想认真买一条长期主力线的人来说，它的决策成本最低。
 
@@ -657,7 +657,3 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 机场服务的价格、入口、套餐、节点、协议、解锁能力和可用性都会随时间变化。下单前请务必自行核对官网公告、结算页、服务条款和退款规则。
 
 请遵守所在地法律法规和相关平台服务条款，合理使用网络工具。本文中的推广链接可能包含联盟参数，用于支持内容持续维护，但不会改变推荐排序的基本原则：稳定性、可用性、长期体验和用户场景匹配优先。
-
----
-
-内容最后更新：2026年07月21日
