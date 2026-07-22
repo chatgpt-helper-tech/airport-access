@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月22日 08:34:16
+更新时间：2026年7月22日 11:32:25
 
-1. [More warehouses of Russian online retailer Wildberries hit by Ukraine, officials say](https://www.bbc.co.uk/news/articles/c36de9n4pxpo?at_medium=RSS&at_campaign=rss)
-2. [India's Modi government under growing pressure as 'cockroach' protests intensify](https://www.bbc.co.uk/news/articles/c9d8p88lyjdo?at_medium=RSS&at_campaign=rss)
-3. [Japan Is Startled by Prime Minister’s Grueling Sleep Schedule](https://www.nytimes.com/2026/07/22/world/asia/japan-takaichi-sleep-schedule.html)
-4. [French lawmakers approve a sweeping social media ban for children under 15](https://www.npr.org/2026/07/22/g-s1-134875/france-social-media-ban)
-5. [Zelensky sacks Ukraine's top army commander after days of protests](https://www.bbc.co.uk/news/articles/cyvl35z3917o?at_medium=RSS&at_campaign=rss)
-6. [Iran’s Neighbors Long for a Deal, Any Deal, to End the War](https://www.nytimes.com/2026/07/22/world/asia/iran-pakistan-karachi-trade-oil.html)
-7. [France passes law banning under-15s from social media](https://www.bbc.co.uk/news/articles/cq56l9p4y93o?at_medium=RSS&at_campaign=rss)
-8. [Michelin-starred restaurateur faces jail for using ants as dessert garnish](https://www.bbc.co.uk/news/articles/c62qw1qk95eo?at_medium=RSS&at_campaign=rss)
-9. [US renews strikes on Iran as Trump threatens to attack underground nuclear site](https://www.bbc.co.uk/news/articles/cdrv0p37k8jo?at_medium=RSS&at_campaign=rss)
-10. [India’s Young Protesters Are Bloodied but Unbowed](https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html)
+1. [Trump to attend dignified transfer of fallen soldiers. And, Hegseth testifies on Iran](https://www.npr.org/2026/07/22/g-s1-134896/up-first-newsletter-trump-iran-war-pete-hegseth-arizona-primaries)
+2. [Iran War Live Updates: Rubio Signals No Letup in U.S. Strikes](https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz)
+3. [A Lettuce-Growing Region in Mexico Stomachs the Fallout From the Cyclospora Outbreak](https://www.nytimes.com/2026/07/22/world/americas/cyclospora-lettuce-mexico-guanajuato.html)
+4. [Firing of Ukraine’s Top General Signals the End of an Era](https://www.nytimes.com/2026/07/22/world/europe/ukraine-syrskyi-general-russia-war.html)
+5. [U.S. and Iranian attacks continue as tensions mount on a key waterway in the Red Sea](https://www.npr.org/2026/07/22/nx-s1-5902843/us-iran-updates)
+6. [Modelling scout linked to Epstein found dead in Paris suburbs](https://www.bbc.co.uk/news/articles/cp8en38vpd3o?at_medium=RSS&at_campaign=rss)
+7. [Ukraine’s New Military Chief Faces a Monumental Test](https://www.nytimes.com/2026/07/22/world/europe/ukraine-military-chief-drapatyi.html)
+8. [US renews strikes on Iran as Trump threatens to attack underground nuclear site](https://www.bbc.co.uk/news/articles/cdrv0p37k8jo?at_medium=RSS&at_campaign=rss)
+9. [Ukrainian drones hit more sites of Russian online retailer Wildberries](https://www.bbc.co.uk/news/articles/c36de9n4pxpo?at_medium=RSS&at_campaign=rss)
+10. [Germany’s Military Buyers Look to Reduce Caution and Embrace Drones](https://www.nytimes.com/2026/07/22/world/europe/germany-rearmament-innovation-reinvention-arms.html)
 <!-- daily-check end -->
