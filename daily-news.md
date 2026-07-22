@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月21日 12:35:30
+更新时间：2026年7月22日 07:39:27
 
-1. [Houthis in Yemen Edge Closer to Entering U.S.-Iran War](https://www.nytimes.com/2026/07/21/world/middleeast/houthis-yemen-iran-war.html)
-2. [Burnham, UK’s New Prime Minister, Starts With Electricity Tax Cut](https://www.nytimes.com/2026/07/21/world/europe/uk-andy-burnham-electricity-tax-vat.html)
-3. [India's youth-led Cockroach movement vows to continue protest after police crackdown](https://www.npr.org/2026/07/21/g-s1-134722/indias-youth-led-cockroach-movement-vows-to-continue-protest-after-police-crackdown)
-4. [How Two Brothers Dug for Dead Relatives: With a Shovel and a Kitchen Knife](https://www.nytimes.com/2026/07/21/world/americas/venezuela-quake-victims-search.html)
-5. [Trump slaps 50% tariffs on Canada and Carney vows to 'intensify' trade talks](https://www.bbc.co.uk/news/articles/cg4dzq3x3e1o?at_medium=RSS&at_campaign=rss)
-6. [Iran-backed Houthis announce blockade. And, Cyclospora source remains unknown](https://www.npr.org/2026/07/21/g-s1-134720/up-first-newsletter-yemen-houthi-iran-war-pete-hegseth-pentagon-fda-cyclospora)
-7. [Lebanese army says troops deploying in 'pilot zone' after Israeli withdrawal](https://www.bbc.co.uk/news/articles/cy8mynlmn55o?at_medium=RSS&at_campaign=rss)
-8. [Philippines Says Sailor Was Injured in Skirmish With Chinese Coast Guard](https://www.nytimes.com/2026/07/21/world/asia/philippines-south-china-sea-sailor-injured.html)
-9. [Amid U.S.-Iran war, Houthi rebels threaten to blockade another key strait](https://www.npr.org/2026/07/21/nx-s1-5901846/us-iran-updates)
-10. [New UK Prime Minister Burnham Promises Hope and Change. The Hurdles Are High.](https://www.nytimes.com/2026/07/21/world/europe/andy-burnham-new-uk-prime-minister-policies.html)
+1. [More warehouses of Russian online retailer Wildberries hit by Ukraine, officials say](https://www.bbc.co.uk/news/articles/c36de9n4pxpo?at_medium=RSS&at_campaign=rss)
+2. [French lawmakers approve a sweeping social media ban for children under 15](https://www.npr.org/2026/07/22/g-s1-134875/france-social-media-ban)
+3. [Zelensky sacks Ukraine's top army commander after days of protests](https://www.bbc.co.uk/news/articles/cyvl35z3917o?at_medium=RSS&at_campaign=rss)
+4. [Rebel Wilson cleared in defamation case brought by actress in her own film](https://www.bbc.co.uk/news/articles/c80nv4eevero?at_medium=RSS&at_campaign=rss)
+5. [France passes law banning under-15s from social media](https://www.bbc.co.uk/news/articles/cq56l9p4y93o?at_medium=RSS&at_campaign=rss)
+6. [Michelin-starred restaurateur faces jail for using ants as dessert garnish](https://www.bbc.co.uk/news/articles/c62qw1qk95eo?at_medium=RSS&at_campaign=rss)
+7. [US renews strikes on Iran as Trump threatens to attack underground nuclear site](https://www.bbc.co.uk/news/articles/cdrv0p37k8jo?at_medium=RSS&at_campaign=rss)
+8. [India’s Young Protesters Are Bloodied but Unbowed](https://www.nytimes.com/2026/07/21/world/asia/india-protests-cockroach-janta-party.html)
+9. [Iran war has cost US $37.5bn so far, Hegseth says, as Pentagon seeks billions more](https://www.bbc.co.uk/news/articles/c70gek2kqyno?at_medium=RSS&at_campaign=rss)
+10. [Tokyo urges men to wear shorts to work, but some women say it's 'leg hair harassment'](https://www.bbc.co.uk/news/articles/cvgwp513jpvo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
