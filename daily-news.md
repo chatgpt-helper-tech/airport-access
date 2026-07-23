@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月22日 15:34:49
+更新时间：2026年7月23日 01:34:58
 
-1. [Iran War Live Updates: Trump Threatens Retaliation Against Civilian Targets if Iran Strikes in Strait](https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz)
-2. [Who is Mykhailo Drapatyi, Ukraine's new commander-in-chief?](https://www.bbc.co.uk/news/articles/c93483k0lp1o?at_medium=RSS&at_campaign=rss)
-3. [Model Scout Who Connected Women to Epstein Is Found Dead in France](https://www.nytimes.com/2026/07/22/world/europe/epstein-daniel-siad-dead-model-scout.html)
-4. [Modelling scout linked to Epstein found dead in Paris](https://www.bbc.co.uk/news/articles/cp8en38vpd3o?at_medium=RSS&at_campaign=rss)
-5. [Ukrainian drones hit Russian online giant retailer Wildberries for second time](https://www.bbc.co.uk/news/articles/c36de9n4pxpo?at_medium=RSS&at_campaign=rss)
-6. [Coveted U.S. Nuclear Deal Is a Coup for Saudi Crown Prince](https://www.nytimes.com/2026/07/22/world/middleeast/us-saudi-arabia-nuclear-deal.html)
-7. [US to announce deal allowing Saudi Arabia a nuclear programme](https://www.bbc.co.uk/news/articles/cj03r59z73po?at_medium=RSS&at_campaign=rss)
-8. [Tankers make sharp U-turns after Houthi shipping threat](https://www.bbc.co.uk/news/articles/cn0n127lpzgo?at_medium=RSS&at_campaign=rss)
-9. [U.S.-Saudi Nuclear Deal Stokes Israeli Concerns of Mideast Arms Race](https://www.nytimes.com/2026/07/22/world/middleeast/saudi-nuclear-deal-israel.html)
-10. [British woman jailed for blackmail after accusing banker of rape in Hong Kong](https://www.bbc.co.uk/news/articles/cz97gdjgezno?at_medium=RSS&at_campaign=rss)
+1. [Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets](https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz)
+2. [US signs landmark nuclear deal with Saudi Arabia](https://www.bbc.co.uk/news/articles/cj03r59z73po?at_medium=RSS&at_campaign=rss)
+3. [Canada's 'powerful' dairy sector is in Trump's trade crosshairs](https://www.bbc.co.uk/news/articles/ce8kvm84lxmo?at_medium=RSS&at_campaign=rss)
+4. [Russia's businesses under strain from Ukraine's attacks on Wildberries](https://www.bbc.co.uk/news/articles/cvg9n2y61w6o?at_medium=RSS&at_campaign=rss)
+5. [Trump threatens to target Iran's bridges and power plants if Hormuz attacks persist](https://www.bbc.co.uk/news/articles/cdrv0p37k8jo?at_medium=RSS&at_campaign=rss)
+6. [Why Are Young People in India Protesting?](https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html)
+7. [Israeli Banks Threaten to Cut Off Palestinian Economy](https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html)
+8. [Louvre Gallery Reopens After Brazen Jewel Heist](https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html)
+9. [Trump administration signs commercial nuclear deal with Saudi Arabia](https://www.npr.org/2026/07/22/nx-s1-5903293/trump-saudi-arabia-nuclear-deal)
+10. [Fire kills 10 members of same family in Peru, police say](https://www.bbc.co.uk/news/articles/cm2g11ng7j2o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
