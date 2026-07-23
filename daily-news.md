@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月23日 05:30:35
+更新时间：2026年7月23日 10:31:58
 
-1. [Iran War Live Updates: Iran Digs In After Latest Trump Threat on Civilian Targets](https://www.nytimes.com/live/2026/07/22/world/iran-war-strikes-trump-hormuz)
-2. [Houthis claim attack on oil tankers as US launches more strikes on Iran](https://www.bbc.co.uk/news/articles/cpw9xzx9r4ko?at_medium=RSS&at_campaign=rss)
-3. [US signs landmark nuclear deal with Saudi Arabia](https://www.bbc.co.uk/news/articles/cj03r59z73po?at_medium=RSS&at_campaign=rss)
-4. [Canada's 'powerful' dairy sector is in Trump's trade crosshairs](https://www.bbc.co.uk/news/articles/ce8kvm84lxmo?at_medium=RSS&at_campaign=rss)
-5. [Russia's businesses under strain from Ukraine's attacks on Wildberries](https://www.bbc.co.uk/news/articles/cvg9n2y61w6o?at_medium=RSS&at_campaign=rss)
-6. [Google burning through cash with spiralling AI costs](https://www.bbc.co.uk/news/articles/c235n47g8g8o?at_medium=RSS&at_campaign=rss)
-7. [Why Are Young People in India Protesting?](https://www.nytimes.com/2026/07/22/world/asia/india-youth-protest-modi-cockroach-janta-party.html)
-8. [Israeli Banks Threaten to Cut Off Palestinian Economy](https://www.nytimes.com/2026/07/22/world/middleeast/israeli-banks-palestinian-economy.html)
-9. [Louvre Gallery Reopens After Brazen Jewel Heist](https://www.nytimes.com/2026/07/22/france-louvre-reopening-jewels.html)
-10. [Trump administration signs commercial nuclear deal with Saudi Arabia](https://www.npr.org/2026/07/22/nx-s1-5903293/trump-saudi-arabia-nuclear-deal)
+1. [A New Target for Ukraine’s Long-Range Attacks: Russia’s Version of Amazon](https://www.nytimes.com/2026/07/23/world/europe/russia-ukraine-wildberries-attacks.html)
+2. [Oil-Rich Saudi Arabia Isn’t Short on Energy. Here’s Why It’s Going Nuclear.](https://www.nytimes.com/2026/07/23/world/middleeast/saudi-arabia-nuclear.html)
+3. [U.S.-Saudi Deal Prompts Fears of a Nuclear Arms Race](https://www.nytimes.com/2026/07/23/world/europe/us-saudi-deal-nuclear-hedging.html)
+4. [US signs landmark nuclear deal with Saudi Arabia](https://www.bbc.co.uk/news/articles/cj03r59z73po?at_medium=RSS&at_campaign=rss)
+5. [A Russian Spy, Suddenly Cast Into the Spotlight, Flees Japan](https://www.nytimes.com/2026/07/23/world/asia/russian-spy-flees-japan.html)
+6. [‘We Will All Die From Ebola Here’: Virus Stalks Crowded Camps in Congo](https://www.nytimes.com/2026/07/23/world/africa/ebola-camps-congo-water-aid.html)
+7. [Why I Sought Out a Taliban Commander I Had Fought](https://www.nytimes.com/2026/07/23/world/asia/taliban-afghanistan-marine.html)
+8. [Thousands evacuated in France fires](https://www.bbc.co.uk/news/articles/cy4kmr82n44o?at_medium=RSS&at_campaign=rss)
+9. [Beloved educator's detention fuels India's biggest protests in years](https://www.npr.org/2026/07/23/nx-s1-5901932/beloved-educators-detention-fuels-indias-biggest-protests-in-years)
+10. [U.S. Military Presence in Jordan Makes It Iranian Target](https://www.nytimes.com/2026/07/23/world/middleeast/jordan-iran-us-forces.html)
 <!-- daily-check end -->
