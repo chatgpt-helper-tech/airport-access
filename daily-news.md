@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月24日 02:36:26
+更新时间：2026年7月24日 09:39:59
 
-1. [US imposes tariffs on dozens of trade partners over 'forced labour' imports](https://www.bbc.co.uk/news/articles/cvgj61j6l08o?at_medium=RSS&at_campaign=rss)
-2. [Indonesian babies were trafficked to Singapore. What happens to them now?](https://www.bbc.co.uk/news/articles/c7vgeredvlgo?at_medium=RSS&at_campaign=rss)
-3. [India activist ends hunger strike after 26 days](https://www.bbc.co.uk/news/articles/cjwx4x04yqzo?at_medium=RSS&at_campaign=rss)
-4. [France evacuates 20,000 as wildfires spread in south-west](https://www.bbc.co.uk/news/articles/cy4kmr82n44o?at_medium=RSS&at_campaign=rss)
-5. [Saudis must recognise Israel for nuclear deal, says Trump](https://www.bbc.co.uk/news/articles/cwye71yq8wwo?at_medium=RSS&at_campaign=rss)
-6. [Ukraine's ousted defence minister insists on being reinstated](https://www.bbc.co.uk/news/articles/ce97nm53pgxo?at_medium=RSS&at_campaign=rss)
-7. [Teen jailed for exam cheating in Guinea dies after sickle cell complications, father says](https://www.bbc.co.uk/news/articles/cn0nykz6lweo?at_medium=RSS&at_campaign=rss)
-8. [Oil prices hit $100 for the first time since May](https://www.bbc.co.uk/news/articles/cx2djnzrqk2o?at_medium=RSS&at_campaign=rss)
-9. [In a first, Chinese woman wins the prestigious Fields Medal](https://www.npr.org/2026/07/23/g-s1-135032/in-a-first-chinese-woman-wins-the-prestigious-fields-medal)
-10. [U.S. signs nuclear deal with Saudi Arabia. And, Nolan Wells' independent autopsy results](https://www.npr.org/2026/07/23/g-s1-135097/up-first-newsletter-saudi-arabia-nuclear-deal-house-bills-peptides-nolan-wells)
+1. [France orders evacuation of tourist spot as hundreds flee wildfires by boat](https://www.bbc.co.uk/news/articles/cdx82rl5g0do?at_medium=RSS&at_campaign=rss)
+2. [US and Iran trade more strikes in Gulf as fears of escalation mount](https://www.bbc.co.uk/news/articles/c05ql5llj4do?at_medium=RSS&at_campaign=rss)
+3. [As Canada Opens Gordie Howe International Bridge, Americans Are Told to Stay Home](https://www.nytimes.com/2026/07/24/world/canada/canada-gordie-howe-bridge-trump.html)
+4. [‘We’re Trapped in Hell’: Iranians Say Life Is Put On Hold by Months of War](https://www.nytimes.com/2026/07/24/world/middleeast/iran-war-cycle.html)
+5. [Venezuela’s Earthquakes Show Wealth Divide, Even in Death](https://www.nytimes.com/2026/07/24/world/americas/venezuela-earthquake-dead-costs-la-guaira.html)
+6. [In Kyrgyzstan, Girls Compete at Kok-Boru, a Game Like Polo](https://www.nytimes.com/2026/07/24/world/europe/first-girls-polo-team-breaks-with-tradition-but-keeps-the-goat-carcass.html)
+7. [Netflix viewers the world over are binge-watching South African series 'The Polygamist.' Here's why](https://www.npr.org/2026/07/24/nx-s1-5901949/netflix-south-african-series-the-polygamist)
+8. [US hits dozens of countries with new wave of tariffs](https://www.bbc.co.uk/news/articles/cvgj61j6l08o?at_medium=RSS&at_campaign=rss)
+9. [Faced With Heat and Wildfires, France Turns to Spain to Learn How to Cope](https://www.nytimes.com/2026/07/24/world/europe/france-spain-climate-heat-wildfires.html)
+10. [Tech titan ordered to pay ex-wife $644m in divorce settlement](https://www.bbc.co.uk/news/articles/ckg68jky65eo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
