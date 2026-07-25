@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月25日 05:39:35
+更新时间：2026年7月25日 14:34:16
 
-1. [Saudi Arabia and Houthis exchange fire as US attacks tanker in Hormuz Strait](https://www.bbc.co.uk/news/articles/cj9d27v70j1o?at_medium=RSS&at_campaign=rss)
-2. [More than 220,000 evacuated in France and Spain due to wildfires](https://www.bbc.co.uk/news/articles/czjlenp0xk8o?at_medium=RSS&at_campaign=rss)
-3. [Texts reveal 14-year-old allegedly murdered by singer D4vd had pregnancy and abortion](https://www.bbc.co.uk/news/articles/cr592qdj1ldo?at_medium=RSS&at_campaign=rss)
-4. [Iran War Updates: Trump Meets With Cabinet Over Whether to Intensify Iran Strikes](https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil)
-5. [India’s Student Protesters Win Some Concessions From Government](https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockroach-janta-party.html)
-6. [Ten killed in Russian attack on drone exhibition near Kyiv](https://www.bbc.co.uk/news/articles/cj637zd1k1ko?at_medium=RSS&at_campaign=rss)
-7. [Zelensky tries to fix crisis over removal of defence minister and counts the cost](https://www.bbc.co.uk/news/articles/c1d1gz3n99ro?at_medium=RSS&at_campaign=rss)
-8. [Four Palestinians and two Israelis killed in West Bank shooting](https://www.bbc.co.uk/news/articles/cx2rxmye4k3o?at_medium=RSS&at_campaign=rss)
-9. [ICC member states vote to remove chief prosecutor Karim Khan](https://www.npr.org/2026/07/24/g-s1-135498/icc-court-prosecutor-karim-khan-vote)
-10. [ICC top prosecutor removed over sexual misconduct allegations](https://www.bbc.co.uk/news/articles/cqjxddx12qqo?at_medium=RSS&at_campaign=rss)
+1. [Live Updates: Hundreds of Thousands Flee as Fires Rage in Spain and France](https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations)
+2. [Iran War Live Updates: U.S. Strikes Abate, Even as Trump Considers Escalation](https://www.nytimes.com/live/2026/07/25/world/iran-war-us-strikes-trump-oil)
+3. [Who Are the People Protesting in India?](https://www.nytimes.com/2026/07/25/world/asia/india-protests-profiles.html)
+4. [Trump takes swipes at press during White House Correspondents' Dinner](https://www.bbc.co.uk/news/articles/cd7le4ylev2o?at_medium=RSS&at_campaign=rss)
+5. [Wildfire Smoke Chokes Skies in Spain and France](https://www.nytimes.com/2026/07/25/world/europe/wildfires-photos-spain-france.html)
+6. [What to Know About the Wildfires Raging in Western Europe](https://www.nytimes.com/2026/07/25/world/europe/europe-fires-france-spain-what-to-know.html)
+7. [Iran Journey Reveals Society’s Wartime Defiance and Hope](https://www.nytimes.com/2026/07/25/world/middleeast/what-a-journey-through-wartime-iran-revealed.html)
+8. [Ukraine drone strikes on Wildberries warehouses hit Russian sellers, consumers](https://www.npr.org/2026/07/25/nx-s1-5905377/ukraine-drone-strikes-on-wildberries-warehouses-hit-russian-sellers-consumers)
+9. [India’s Education Minister Steps Down, Handing Win to Protesters](https://www.nytimes.com/2026/07/25/world/asia/india-education-minister-resigns-cockroach-protests.html)
+10. [Colombia’s Trump-Endorsed President-Elect Was Once Investigated by U.S. Authorities](https://www.nytimes.com/2026/07/25/world/americas/colombia-president-de-la-espriella-trump-us-investigation.html)
 <!-- daily-check end -->
