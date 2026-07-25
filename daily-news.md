@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月24日 15:39:35
+更新时间：2026年7月25日 01:37:37
 
-1. [Four Palestinians and two Israelis killed in West Bank shooting](https://www.bbc.co.uk/news/articles/cx2rxmye4k3o?at_medium=RSS&at_campaign=rss)
-2. [Iran War Live Updates: Strikes Persist After Iran Is Said to Reject U.S. Proposal](https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil)
-3. [Nigeria's president approves largest military expansion in recent times](https://www.bbc.co.uk/news/articles/cwymjx3nrxvo?at_medium=RSS&at_campaign=rss)
-4. [US and Iran trade more strikes in Gulf as fears of escalation mount](https://www.bbc.co.uk/news/articles/c05ql5llj4do?at_medium=RSS&at_campaign=rss)
-5. [Tens of thousands evacuated from French tourist spot and near Madrid as wildfires spread](https://www.bbc.co.uk/news/articles/cdx82rl5g0do?at_medium=RSS&at_campaign=rss)
-6. [Phones in Hand, India’s Young Protesters Blast Through Modi’s Media Control](https://www.nytimes.com/2026/07/24/world/asia/india-cockroach-party-cjp-protest-memes.html)
-7. [Russia and Ukraine Trade Deadly Blows With Missiles and Drones](https://www.nytimes.com/2026/07/24/world/europe/russia-ukraine-war-attacks.html)
-8. [Indonesian babies were trafficked to Singapore. What happens to them now?](https://www.bbc.co.uk/news/articles/c7vgeredvlgo?at_medium=RSS&at_campaign=rss)
-9. [US hits dozens of countries with new wave of tariffs](https://www.bbc.co.uk/news/articles/cvgj61j6l08o?at_medium=RSS&at_campaign=rss)
-10. [Bangladesh’s President Resigns Amid Uncertainty Over Ex-Leader’s Plans](https://www.nytimes.com/2026/07/24/world/asia/bangladesh-president-resigns.html)
+1. [Firefighters struggle to contain Madrid wildfires, as more than 160,000 evacuated in France and Spain](https://www.bbc.co.uk/news/articles/czjlenp0xk8o?at_medium=RSS&at_campaign=rss)
+2. [Iran War Updates: Trump Meets With Cabinet Over Whether to Intensify Iran Strikes](https://www.nytimes.com/live/2026/07/24/world/iran-war-us-strikes-trump-oil)
+3. [Texts reveal 14-year-old allegedly murdered by singer D4vd had pregnancy and abortion](https://www.bbc.co.uk/news/articles/cr592qdj1ldo?at_medium=RSS&at_campaign=rss)
+4. [India’s Student Protesters Win Some Concessions From Government](https://www.nytimes.com/2026/07/24/world/asia/india-genz-student-movement-cockroach-janta-party.html)
+5. [Ten killed in Russian attack on drone exhibition near Kyiv](https://www.bbc.co.uk/news/articles/cj637zd1k1ko?at_medium=RSS&at_campaign=rss)
+6. [Zelensky tries to fix crisis over removal of defence minister and counts the cost](https://www.bbc.co.uk/news/articles/c1d1gz3n99ro?at_medium=RSS&at_campaign=rss)
+7. [ICC member states vote to remove chief prosecutor Karim Khan](https://www.npr.org/2026/07/24/g-s1-135498/icc-court-prosecutor-karim-khan-vote)
+8. [ICC top prosecutor removed over sexual misconduct allegations](https://www.bbc.co.uk/news/articles/cqjxddx12qqo?at_medium=RSS&at_campaign=rss)
+9. [ICC member nations vote to remove chief prosecutor](https://www.npr.org/2026/07/24/nx-s1-5901054/icc-member-nations-vote-to-remove-chief-prosecutor)
+10. [Trump vows to investigate EU over fining of US tech companies](https://www.bbc.co.uk/news/articles/cvgjenp4680o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
