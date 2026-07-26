@@ -1,9 +1,9 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月26日 08:33:54
+更新时间：2026年7月26日 09:30:29
 
-1. [Watch: At the scene of Berlin Pride attack as manhunt continues](https://www.bbc.co.uk/news/videos/c74gzknyyz2o?at_medium=RSS&at_campaign=rss)
+1. [What we know so far about the Berlin Pride ramming attack](https://www.bbc.co.uk/news/articles/cevmdxz4872o?at_medium=RSS&at_campaign=rss)
 2. [France battles fire 'whirlwinds' as another 55,000 evacuated](https://www.bbc.co.uk/news/articles/clyj8k4nn5jo?at_medium=RSS&at_campaign=rss)
 3. [Hundreds of Thousands Flee as Fires Rage in Spain and France](https://www.nytimes.com/live/2026/07/25/world/france-spain-wildfires-evacuations)
 4. [One dead, several injured after vehicle plows through crowd at Berlin Pride event](https://www.npr.org/2026/07/25/nx-s1-5907997/germany-lgbtq-event-dead-injured-pride)
