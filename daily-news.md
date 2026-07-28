@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月28日 03:38:10
+更新时间：2026年7月28日 15:35:27
 
-1. [India’s ‘Cockroach’ Protesters Disperse, But Questions Remain on Education and Dissent](https://www.nytimes.com/2026/07/27/world/asia/india-protests-cjp-education-modi.html)
-2. [Europe Wildfires Updates: New Heat Wave Could Worsen France and Spain’s ‘Unprecedented’ Fire Season](https://www.nytimes.com/live/2026/07/27/world/france-spain-wildfires-evacutions)
-3. [US singer D4vd to go on trial for murder in death of 14-year-old](https://www.bbc.co.uk/news/articles/c70gkg62w0ro?at_medium=RSS&at_campaign=rss)
-4. [A Japanese town wrestles with identity after protests over its first mosque](https://www.bbc.co.uk/news/articles/c36d79nd5w8o?at_medium=RSS&at_campaign=rss)
-5. [China's new challenge as natural disasters strike - fake AI videos](https://www.bbc.co.uk/news/articles/cx27mjvxgg1o?at_medium=RSS&at_campaign=rss)
-6. [Georgia's Okefenokee Swamp becomes a UNESCO World Heritage site](https://www.npr.org/2026/07/27/nx-s1-5906359-e1/georgias-okefenokee-swamp-becomes-a-unesco-world-heritage-site)
-7. [In Washington, Netanyahu Faces a Delicate Balancing Act](https://www.nytimes.com/2026/07/27/world/middleeast/trump-netanyahu-relationship-iran.html)
-8. [Trump says Iran war talks taking place during lull in strikes](https://www.bbc.co.uk/news/articles/c62xn4vzmnpo?at_medium=RSS&at_campaign=rss)
-9. [How the Iran-Backed Houthis Cornered Saudi Arabia Into a New Conflict](https://www.nytimes.com/2026/07/27/world/middleeast/houthis-saudi-arabia-iran-war.html)
-10. [Wildfire now nine miles from French city of Bordeaux, mayor warns](https://www.bbc.co.uk/news/articles/ckg34128nvpo?at_medium=RSS&at_campaign=rss)
+1. [Photos: Spain and France's battle record wildfires](https://www.npr.org/2026/07/28/g-s1-135880/photos-spain-france-wildfires-climate-change)
+2. [As U.S. Pauses Strikes, Iran Is No Rush to Resume Cease-Fire Talks](https://www.nytimes.com/2026/07/28/world/middleeast/iran-war-us-trump.html)
+3. [Many Feared Trapped in Mall Collapse After Japan Earthquake, Officials Say](https://www.nytimes.com/live/2026/07/28/world/japan-earthquake-kumamoto-tsunami)
+4. [France and Spain Race to Contain Fires Before Some Areas Reach 104 Degrees](https://www.nytimes.com/2026/07/28/world/europe/wildfires-france-spain.html)
+5. [Zelensky and Trump Meet at the White House. Has Their Relationship Thawed?](https://www.nytimes.com/2026/07/28/world/europe/zelensky-trump-meeting-ukraine-war-russia.html)
+6. [Mancini reappointed Italy boss after Pirlo controversy](https://www.bbc.co.uk/sport/football/articles/c0ly412r412o?at_medium=RSS&at_campaign=rss)
+7. [French Navy carries out 'shooting drill' mid interview](https://www.bbc.co.uk/news/articles/cy4ker2y1mko?at_medium=RSS&at_campaign=rss)
+8. [Gironde wildfires pick up as French region braces for new 40C heatwave](https://www.bbc.co.uk/news/articles/c5yd8gly1ydo?at_medium=RSS&at_campaign=rss)
+9. [Fire Raging Near Bordeaux Brings More Bad News for Its Vineyards](https://www.nytimes.com/2026/07/28/world/europe/bordeaux-wine-france-wildfires-smoke.html)
+10. [Ukraine’s Strike on an Iranian Ship Could Bring Two Wars Closer](https://www.nytimes.com/2026/07/28/world/middleeast/iran-ukraine-ship-strikes-caspian.html)
 <!-- daily-check end -->
