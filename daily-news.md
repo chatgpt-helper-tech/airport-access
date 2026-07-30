@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月29日 15:31:31
+更新时间：2026年7月30日 06:37:57
 
-1. [Anthony Fauci refuses to answer questions during US Senate hearing about Covid origins](https://www.bbc.co.uk/news/articles/cdx85vkk0gko?at_medium=RSS&at_campaign=rss)
-2. [Iran War Live Updates: New Strikes Threaten to Engulf More Countries in Conflict](https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump)
-3. [Wildfires Slow in France and Spain, but Worse May Be Ahead](https://www.nytimes.com/2026/07/29/world/europe/wildfires-spain-france.html)
-4. [Thousands in Spain return home but new heatwave raises wildfire fears](https://www.bbc.co.uk/news/articles/cwyjgwg8jddo?at_medium=RSS&at_campaign=rss)
-5. [Oscar-winning songwriter Glen Hansard killed in crash](https://www.bbc.co.uk/news/articles/c3ekn9d37qvo?at_medium=RSS&at_campaign=rss)
-6. [Greetings from an isolated region in northern Pakistan's Hindu Kush mountains](https://www.npr.org/2026/07/29/g-s1-135641/pakistan-chitral-hindu-kush-mountains)
-7. [Summer of Heat, Fires and Storms Is a Reckoning for Europe on Climate](https://www.nytimes.com/2026/07/29/world/europe/summer-heat-wave-fires-climate-change.html)
-8. [Israel Strikes Mosque in Gaza City](https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html)
-9. [Saudi Arabia joins US in strikes on Iran-backed militias in Iraq](https://www.bbc.co.uk/news/articles/c70g6y24d76o?at_medium=RSS&at_campaign=rss)
-10. [Russia Charges Telegram’s Founder Pavel Durov With Facilitating Terrorism](https://www.nytimes.com/2026/07/29/world/europe/telegram-russia-pavel-durov.html)
+1. [Iran War Live Updates: U.S. Strikes Iran as Fighting Reignites Across Region](https://www.nytimes.com/live/2026/07/28/world/iran-us-strikes-iraq-trump)
+2. [US launches 'heavy' strikes on Iran after attempted attack on American troops](https://www.bbc.co.uk/news/articles/c74gwdzywmeo?at_medium=RSS&at_campaign=rss)
+3. [Hope dwindles for rescue in southwestern Japan quake as death toll climbs to 23](https://www.npr.org/2026/07/30/nx-s1-5913050/japan-earthquake-updates)
+4. [Singapore fines French teen $465 for viral straw-licking stunt](https://www.bbc.co.uk/news/articles/crrvqjw8epko?at_medium=RSS&at_campaign=rss)
+5. [Israel Strikes Mosque in Gaza City](https://www.nytimes.com/2026/07/29/world/israel-strikes-mosque-gaza-city.html)
+6. [Three Greek firefighters die as wildfires threaten parts of southern Europe](https://www.bbc.co.uk/news/articles/cwyjgwg8jddo?at_medium=RSS&at_campaign=rss)
+7. [Trump considering AI controls after OpenAI hacking incidents](https://www.bbc.co.uk/news/articles/c20dppq3y90o?at_medium=RSS&at_campaign=rss)
+8. [BTS Won’t Enter Music From Comeback Album for Grammy Awards](https://www.nytimes.com/2026/07/29/world/asia/bts-grammys-arirang-boycott-asian-category.html)
+9. [Salman Rushdie attacker convicted of terror offences](https://www.bbc.co.uk/news/articles/c86ng1g5wy4o?at_medium=RSS&at_campaign=rss)
+10. [The race is on for the next United Nations secretary general](https://www.npr.org/2026/07/29/nx-s1-5909162/the-race-is-on-for-the-next-united-nations-secretary-general)
 <!-- daily-check end -->
