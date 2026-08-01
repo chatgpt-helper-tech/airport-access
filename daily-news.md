@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年7月31日 13:39:45
+更新时间：2026年8月1日 05:31:01
 
-1. [Trump’s Announcement of Gaza Deal Raises Many Unanswered Questions](https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html)
-2. [Live Updates: Tens of Thousands Crossed Into Spanish Territory, Officials Say](https://www.nytimes.com/live/2026/07/31/world/spain-ceuta-migrants-morocco)
-3. [About 60,000 migrants arrive in Ceuta in 24 hours, Spanish territory's leader says](https://www.bbc.co.uk/news/articles/cx2kp639yx4o?at_medium=RSS&at_campaign=rss)
-4. [Archaeologists Find Hundreds of Ancient Glyphs in the Amazon](https://www.nytimes.com/2026/07/31/world/americas/amazon-archaeology-geoglyphs.html)
-5. [Trump announced a deal for Hamas to disarm. And, the U.S. economy slowed a bit](https://www.npr.org/2026/07/31/g-s1-136527/up-first-newsletter-trump-hamas-israel-todd-blanche-us-economy)
-6. [Selling Burritos Back to Mexico: Chipotle’s Bold Expansion](https://www.nytimes.com/2026/07/31/world/americas/chipotle-restaurant-mexico.html)
-7. [Peru's ex-president has 15-year jail sentence for corruption charges overturned](https://www.bbc.co.uk/news/articles/cx2j9nj88rro?at_medium=RSS&at_campaign=rss)
-8. [In Area Hit by Blaze, French Officials Failed to Enforce Wildfire Rules](https://www.nytimes.com/2026/07/31/france-heat-firebreak-buffer-wildfire.html)
-9. [AC Milan and Italy great Baresi dies aged 66](https://www.bbc.co.uk/sport/football/articles/ckgvlz45l3eo?at_medium=RSS&at_campaign=rss)
-10. [Political Turmoil Will Not Derail Killer Robot Program, Ousted Minister Says](https://www.nytimes.com/2026/07/31/world/europe/federov-ukraine-killer-robots.html)
+1. [Israeli West Bank settler tells BBC attacks on Palestinians are justified as revenge](https://www.bbc.co.uk/news/articles/c4g4djgdyk2o?at_medium=RSS&at_campaign=rss)
+2. [Fifa scraps controversial World Cup investment plan](https://www.bbc.co.uk/sport/football/articles/czekr6kn58po?at_medium=RSS&at_campaign=rss)
+3. [Peru's ex-president leaves jail after 15-year jail term for corruption overturned](https://www.bbc.co.uk/news/articles/cx2j9nj88rro?at_medium=RSS&at_campaign=rss)
+4. [After Tens of Thousands of Migrants Enter Spanish Territory, Most Return to Morocco](https://www.nytimes.com/live/2026/07/31/world/spain-ceuta-migrants-morocco)
+5. [Drone delivery helps in Rwanda, but only so much](https://www.npr.org/2026/07/31/nx-s1-5867626/drone-delivery-helps-in-rwanda-but-only-so-much)
+6. [Tens of thousands of migrants crossed into Spanish territory from Morocco this week](https://www.npr.org/2026/07/31/nx-s1-5914657/tens-of-thousands-of-migrants-crossed-into-spanish-territory-from-morocco-this-week)
+7. [Body of US climber the latest recovered after Pakistan avalanche](https://www.bbc.co.uk/news/articles/cddjz1r01l8o?at_medium=RSS&at_campaign=rss)
+8. [Trump’s Gaza Deal Sparks Questions on Whether Israel and Hamas Will Comply](https://www.nytimes.com/2026/07/31/world/middleeast/trump-gaza-hamas-deal-disarm.html)
+9. [At Least 34 Dead From Coal Mine Blast in Pakistan](https://www.nytimes.com/2026/07/31/world/asia/pakistan-coal-mine-explosion.html)
+10. [Spain's PM blames traffickers after 60,000 migrants reach Ceuta from Morocco](https://www.bbc.co.uk/news/articles/cx2kp639yx4o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
