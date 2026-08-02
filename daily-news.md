@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月1日 14:38:50
+更新时间：2026年8月2日 03:38:17
 
-1. [Mountaineer Nirmal Purja killed in Pakistan avalanche, his company says](https://www.bbc.co.uk/news/articles/clyljq79kdko?at_medium=RSS&at_campaign=rss)
-2. [Russian Missiles Kill 9 in Kyiv After Trump Backs Off Air-Defense Pledge](https://www.nytimes.com/2026/08/01/world/europe/ukraine-russia-attack-missiles-patriot.html)
-3. [Nine killed in strikes on Kyiv, as Ukraine sinks Russian container ship](https://www.bbc.co.uk/news/articles/ce973yvk7pko?at_medium=RSS&at_campaign=rss)
-4. [Nirmal Purja, Renowned Mountaineer, Is Found Dead After Pakistan Avalanche](https://www.nytimes.com/2026/08/01/world/asia/nirmal-purja-dead-pakistan-avalanche.html)
-5. [Spain Installs Floating Barrier in Ceuta After Influx of Migrants](https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html)
-6. [Kuwait Says It Downed Iranian Drones as Mideast Braces for Possible Escalation](https://www.nytimes.com/2026/08/01/world/middleeast/iran-kuwait-drone-strikes-trump-escalation.html)
-7. [Spain attacks 'selfish' response of some EU countries to Ceuta migrant crossings](https://www.bbc.co.uk/news/articles/cx2v91xn1z9o?at_medium=RSS&at_campaign=rss)
-8. [Lebanese who fled the Israeli invasion visit to see what's left](https://www.npr.org/2026/08/01/nx-s1-5910555/lebanon-israel-war-hezbollah)
-9. [Uefa has 'lost confidence' in Infantino's Fifa leadership](https://www.bbc.co.uk/sport/football/articles/c04kr2nv3v3o?at_medium=RSS&at_campaign=rss)
-10. [Death toll in Spain border crisis reaches 67 as tens of thousands cross back in to Morocco](https://www.npr.org/2026/08/01/nx-s1-5916271/ceuta-spain-border-morocco)
+1. [Trump says he is cancelling strikes on Iran subject to 'rapidly' making deal](https://www.bbc.co.uk/news/articles/cjwx74qgld2o?at_medium=RSS&at_campaign=rss)
+2. [How Spain's migrant crisis created a political storm - whipped up by social media](https://www.bbc.co.uk/news/articles/c62vl925dqdo?at_medium=RSS&at_campaign=rss)
+3. [Tourist plane crashes in Peru, killing 13](https://www.bbc.co.uk/news/articles/c70g132erlko?at_medium=RSS&at_campaign=rss)
+4. [Young guns for hire - the teenage hitmen recruited to kill across Europe](https://www.bbc.co.uk/news/articles/czrjyevmv61o?at_medium=RSS&at_campaign=rss)
+5. [The Sopranos star Vincent Pastore dies aged 80](https://www.bbc.co.uk/news/articles/cm2gz0epljgo?at_medium=RSS&at_campaign=rss)
+6. [Avalanche in Pakistan kills famed mountaineer Nirmal Purja and his fellow climbers](https://www.npr.org/2026/08/01/nx-s1-5916368/nirmal-purja-climbers-dead-avalanche)
+7. [Improvised Bomb Kills 3 at an Upscale Moscow Restaurant](https://www.nytimes.com/2026/08/01/world/europe/deadly-bombing-moscow-restaurant.html)
+8. [Spain Installs Floating Barrier in Ceuta After Influx of Migrants](https://www.nytimes.com/2026/08/01/world/europe/spain-ceuta-migrants-morocco-border.html)
+9. [Israel Bombards Gaza, Days After Trump Announced Deal to Advance Cease-Fire](https://www.nytimes.com/2026/08/01/world/middleeast/israel-gaza-strikes-trump-hamas.html)
+10. [Overnight Russian barrage kills nine in Kyiv, as air defense struggle with U.S. continues](https://www.npr.org/2026/08/01/nx-s1-5916393/overnight-russia-kyiv-ukraine-strikes)
 <!-- daily-check end -->
