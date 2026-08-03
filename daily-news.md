@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月3日 06:34:57
+更新时间：2026年8月3日 10:39:19
 
-1. [U.S. dollar weakens sharply against the Japanese yen after market interventions](https://www.npr.org/2026/08/03/g-s1-136866/us-dollar-japanese-yen-market-interventions)
-2. [A blaze on an Indonesian passenger ferry leaves at least 5 dead and dozens missing](https://www.npr.org/2026/08/03/g-s1-136858/blaze-indonesian-passenger-ferry)
-3. ['My only son was shot standing up for justice' - inside city gripped by deadly protests in Pakistan-administered Kashmir](https://www.bbc.co.uk/news/articles/c5yvqk69enko?at_medium=RSS&at_campaign=rss)
-4. [Massive Attack respond after Singapore ban over Palestine display](https://www.bbc.co.uk/news/articles/cr59qe86yj4o?at_medium=RSS&at_campaign=rss)
-5. [Two crew killed after firefighting helicopters collide in Greece, as British pilot survives](https://www.bbc.co.uk/news/articles/c1417713ve6o?at_medium=RSS&at_campaign=rss)
-6. [Trump suggests new talks with Iran to begin on Monday](https://www.bbc.co.uk/news/articles/c23579jzv08o?at_medium=RSS&at_campaign=rss)
-7. [Ariana Grande to take a break from public life amid 'endless' scrutiny](https://www.bbc.co.uk/news/articles/c80ngjjvevyo?at_medium=RSS&at_campaign=rss)
-8. [In Ceuta, Far-Right Leaders Call on Spain to Expel Migrants](https://www.nytimes.com/2026/08/02/world/europe/spain-ceuta-far-right.html)
-9. [Canada’s WestJet Cancels Trips Amid Strike By Flight Attendants](https://www.nytimes.com/2026/08/02/world/canada/westjet-flight-attendants-strike-canada.html)
-10. [Pakistan Police Station Bombing Kills at Least 14](https://www.nytimes.com/2026/08/02/world/asia/pakistan-police-station-bombing.html)
+1. [Singapore Bans Band Massive Attack for Displaying Palestinian Flag](https://www.nytimes.com/2026/08/03/world/asia/massive-attack-singapore-palestinian-flag.html)
+2. [2 Killed as Firefighting Helicopters Collide in Greece](https://www.nytimes.com/2026/08/03/world/europe/greece-fire-helicopter-crash-firefighters.html)
+3. [Iran denies Trump's claim that new talks will begin on Monday](https://www.bbc.co.uk/news/articles/c23579jzv08o?at_medium=RSS&at_campaign=rss)
+4. [Ariana Grande to take a break from public life amid 'endless' scrutiny](https://www.bbc.co.uk/news/articles/c80ngjjvevyo?at_medium=RSS&at_campaign=rss)
+5. [Todd Blanche formally withdraws Trump's 'anti-weaponisation' fund plan](https://www.bbc.co.uk/news/articles/c3w05gx32d4o?at_medium=RSS&at_campaign=rss)
+6. [Rare photos of ex-Myanmar leader Aung San Suu Kyi give her family hope](https://www.npr.org/2026/08/03/nx-s1-5917915/aung-san-suu-kyi-myanmar-rare-photos-kim-aris)
+7. [Ceuta Migration Crisis Exposes Despair Among Morocco’s Young People](https://www.nytimes.com/2026/08/03/world/middleeast/morocco-ceuta-spain-migrants.html)
+8. [After Trump Pardon, Former Honduras President Hernández Faces Charges in His Home Country](https://www.nytimes.com/2026/08/03/world/americas/juan-orlando-hernandez-trump-honduras.html)
+9. [For Iran, Trump’s Reversal on Escalation Shows Who Has the Upper Hand](https://www.nytimes.com/2026/08/03/world/middleeast/iran-trump-escalation.html)
+10. [U.S. steps in to help shore up Japanese yen](https://www.npr.org/2026/08/03/nx-s1-5917867/u-s-steps-in-to-help-shore-up-japanese-yen)
 <!-- daily-check end -->
