@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月6日 02:34:54
+更新时间：2026年8月6日 09:39:07
 
-1. [Meta says AI model accessed the internet and hacked another firm](https://www.bbc.co.uk/news/articles/cx2kgdnyk2po?at_medium=RSS&at_campaign=rss)
-2. [Iran says deal with Oman on Strait of Hormuz is in final stages](https://www.bbc.co.uk/news/articles/ckg9d3eyeggo?at_medium=RSS&at_campaign=rss)
-3. [Banned from football at home, Afghan women's team reunite 8,000 miles away](https://www.bbc.co.uk/news/articles/c8dnrpmgv4yo?at_medium=RSS&at_campaign=rss)
-4. [Infantino sorry for errors but stays Fifa president](https://www.bbc.co.uk/sport/football/articles/clyq3el5gkqo?at_medium=RSS&at_campaign=rss)
-5. [Record-Breaking Heat Wave in South Korea Leads to Canceled Baseball Games](https://www.nytimes.com/2026/08/05/world/asia/south-korea-baseball-heat-wave.html)
-6. [Ousted Bangladeshi leader vows to return from exile despite facing a death sentence](https://www.npr.org/2026/08/05/g-s1-137523/ousted-bangladeshi-leader-vows-to-return-from-exile-despite-facing-a-death-sentence)
-7. [Kyiv residents face attacks with fewer defenses overhead](https://www.npr.org/2026/08/05/nx-s1-5921395/kyiv-residents-face-attacks-with-fewer-defenses-overhead)
-8. [Israel strikes south Lebanon after first evacuation warning in weeks](https://www.bbc.co.uk/news/articles/c998711dyjvo?at_medium=RSS&at_campaign=rss)
-9. [Drone carrying explosives found at German airport, police say](https://www.bbc.co.uk/news/articles/cyvlg4q48l3o?at_medium=RSS&at_campaign=rss)
-10. [Houthis Threaten to Expand Red Sea Attacks, and Claim Strikes on Saudi Tankers](https://www.nytimes.com/2026/08/05/world/middleeast/houthis-claim-attack-saudi-arabia-tanker.html)
+1. [Fires Wrecked Their Village in France. Now They Want Answers.](https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html)
+2. [Afghan boxer accused of killing Scottish aid worker back in court](https://www.bbc.co.uk/news/articles/cj6390k0e26o?at_medium=RSS&at_campaign=rss)
+3. [Iranian footballers who defied Tehran become Australian citizens](https://www.bbc.co.uk/news/articles/cn5nlgxv6vdo?at_medium=RSS&at_campaign=rss)
+4. [Venezuela’s Response to Earthquakes Exposes Government’s Shortcomings](https://www.nytimes.com/2026/08/06/world/americas/venezuela-earthquakes-response-rodriguez.html)
+5. [Gianni Infantino gets internal support at crisis meeting to remain as FIFA president](https://www.npr.org/2026/08/06/nx-s1-5923233/infantino-crisis-meeting-fifa)
+6. [Budget Airline Jetstar to Charge Fees for Using the Overhead Bin](https://www.nytimes.com/2026/08/06/world/australia/jetstar-overhead-bin-compartment-baggage-fees.html)
+7. [Air India's new CEO faces financial and safety turbulence](https://www.bbc.co.uk/news/articles/c9987kkrnl5o?at_medium=RSS&at_campaign=rss)
+8. [Indian journalist Tarun Tejpal convicted in 2013 rape case](https://www.bbc.co.uk/news/articles/cx2v551w9v8o?at_medium=RSS&at_campaign=rss)
+9. [Outrage as Ugandan football captain beaten to death in street gang attack](https://www.bbc.co.uk/news/articles/cm2g0038yr8o?at_medium=RSS&at_campaign=rss)
+10. [Drone with explosives found at German airport, official sees 'new quality' of threat](https://www.npr.org/2026/08/06/g-s1-137571/germany-drone-explosives-airport)
 <!-- daily-check end -->
