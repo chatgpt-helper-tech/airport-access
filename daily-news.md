@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月7日 04:30:48
+更新时间：2026年8月7日 09:30:42
 
-1. [Australian aviation crew carries out daring midwinter Antarctica rescue](https://www.bbc.co.uk/news/articles/c89nqlz5p4qo?at_medium=RSS&at_campaign=rss)
-2. [Uefa says boycott may still go ahead as FA withdraws Infantino support](https://www.bbc.co.uk/sport/football/articles/c2k74yevgzwo?at_medium=RSS&at_campaign=rss)
-3. [Meta fined $567m in largest child safety ruling against social media giant](https://www.bbc.co.uk/news/articles/cd7lz3wr2rlo?at_medium=RSS&at_campaign=rss)
-4. [Two people convicted in relation to death of French streamer](https://www.bbc.co.uk/news/articles/c8rnmdy4enpo?at_medium=RSS&at_campaign=rss)
-5. [Trump again tries to limit US birthright citizenship with new executive orders](https://www.bbc.co.uk/news/articles/cj63966j95yo?at_medium=RSS&at_campaign=rss)
-6. [Houthi Attacks on Yemeni Military Threaten to Reignite Civil War](https://www.nytimes.com/2026/08/06/world/middleeast/houthi-yemen-strikes.html)
-7. [Iran aims to ban U.S. and Israeli ships from Strait of Hormuz and charge others a toll](https://www.npr.org/2026/08/06/nx-s1-5923623/iran-strait-hormuz-us-israel-ban)
-8. [Israeli Settler Charged in Death of Activist Awdah Hathaleen](https://www.nytimes.com/2026/08/06/world/middleeast/israel-settler-manslaughter-palestinian-activist.html)
-9. [Fires Wrecked Their Village in France. Now They Want Answers.](https://www.nytimes.com/2026/08/06/world/europe/le-porge-france-fires-village.html)
-10. [What is the best way to tackle poverty in Ethiopia? This new study tries cash, therapy, and more.](https://www.npr.org/2026/08/06/nx-s1-5821120/what-is-the-best-way-to-tackle-poverty-in-ethiopia-this-new-study-tries-cash-therapy-and-more)
+1. [Meta fined $567m in largest child safety ruling against social media giant](https://www.bbc.co.uk/news/articles/cd7lz3wr2rlo?at_medium=RSS&at_campaign=rss)
+2. [The state of Iran’s three key nuclear sites](https://www.nytimes.com/2026/08/07/world/middleeast/iran-nuclear-program.html)
+3. [Trump Administration Fast-Tracks Military Partnership With Colombia to Target Drug Traffickers](https://www.nytimes.com/2026/08/07/world/americas/trump-administration-military-partnership-colombia.html)
+4. [Seized on Their Way to Gaza, Activists Tell of Abuse in Israeli Custody](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
+5. [Besieged Sudanese city faces relentless drone strikes and risk of mass atrocities, U.N. warns](https://www.npr.org/2026/08/07/nx-s1-5921212/el-obeid-sudan-war)
+6. [A new youth agitation grips an Indian state after 'cockroach' protests](https://www.bbc.co.uk/news/articles/c5ywv6egvx8o?at_medium=RSS&at_campaign=rss)
+7. [Thailand School Shooting Leaves at Least Eight Dead](https://www.nytimes.com/2026/08/07/world/asia/thailand-school-shooting.html)
+8. [Australian aviation crew carries out daring midwinter Antarctica rescue](https://www.bbc.co.uk/news/articles/c89nqlz5p4qo?at_medium=RSS&at_campaign=rss)
+9. [Student kills at least 6 in a shooting at a high school in Thailand, authorities say](https://www.npr.org/2026/08/07/nx-s1-5924583/student-shoots-multiple-people-at-a-high-school-in-thailand-authorities-say)
+10. [Foreigners Behaving Badly in Vietnam Challenge Its Communist Justice System](https://www.nytimes.com/2026/08/07/world/asia/vietnam-tourism-foreigners-crime-law.html)
 <!-- daily-check end -->
