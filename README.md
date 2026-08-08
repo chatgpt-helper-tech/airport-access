@@ -1,12 +1,12 @@
 # 机场推荐 2026：稳定科学上网Clash机场，适合 ChatGPT、流媒体
 
-**内容最后更新：2026年08月01日**
+**内容最后更新：2026年08月08日**
 
 > **快速结论：**
 >
 > - 第一次买主力机场、想少折腾：优先看 **[BoostNet](https://888.boostqz.com/?path=register&code=kKMFirlm)**。
 > - 更看重 IEPL 线路和晚高峰视频：优先看 **[悠兔](https://999.youtu0.com/?path=register&code=erkQTmbM)**。
-> - 预算敏感、设备多、想要低价 IEPL / 流媒体性价比：优先看 **[小蜜蜂](https://inva.xmfaff.cc/register?aff=oClLBb5A)**。
+> - 预算敏感、设备多、想要低价 IEPL / 流媒体性价比：优先看 **[小蜜蜂](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)**。
 > - 想月付试用、轻量 AI 和日常备用：再看 **[u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c)**。
 > - 团队办公、高稳定刚需，或想先季付试一轮高端稳定线：再看 **[WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)**。
 >
@@ -26,7 +26,7 @@
 | --- | --- | --- | --- | --- |
 | 第一次买主力机场，想少折腾 | **BoostNet：¥49/月，200GB/月** | 综合体验均衡，自研客户端省心 | 官方客户端优先 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
 | 更看重 IEPL 线路和晚高峰视频 | **悠兔：¥39/月，150GB/月** | 高端 IEPL，晚高峰视频样本更突出 | 适合长期主力 | [立即注册](https://999.youtu0.com/?path=register&code=erkQTmbM) |
-| 预算敏感、设备多、看剧和日常 AI 都要 | **小蜜蜂：¥20/月，120GB/月** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
+| 预算敏感、设备多、看剧和日常 AI 都要 | **小蜜蜂：¥20/月，120GB/月** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
 | 想月付试用或轻量备用 | **u1s1：¥20/月，120GB/月** | 月付门槛低，适合先试水 | 注意订阅重置规则 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 | 团队办公、高稳定刚需 | **WgetCloud：季付 ¥237 起，200G/90 天** | 更偏团队、办公和高稳定需求 | 当前以季付为主 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
@@ -38,7 +38,7 @@
 | --- | --- | --- | --- | --- | --- | --- |
 | **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 仅限中国大陆使用，新疆不可用 | [立即注册](https://888.boostqz.com/?path=register&code=kKMFirlm) |
 | **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 禁 BT / P2P / PT；小白用户优先官方客户端 | [立即注册](https://999.youtu0.com/?path=register&code=erkQTmbM) |
-| **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 | [立即注册](https://inva.xmfaff.cc/register?aff=oClLBb5A) |
+| **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
 | **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 | **WgetCloud** | 广州 BGP / IEPL / Trojan + Shadowsocks | 优质 / 精品档更适合 ChatGPT、Claude、Copilot、Cursor | 全球流媒体，优质 / 精品档更合适 | 基础 / 优质 / 精品档分别 3 / 4 / 5 个在线 IP | 已开放季付，入门实付 ¥237 起；普通个人按需选择 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
 
@@ -281,7 +281,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 > - **默认套餐：** 轻度备用看 **大黄蜂特惠年度版（60GB/月）**；日常主力看 **小蜜蜂畅游版（120GB/月）** 或 **工蜂极速版（240GB/月）**；重度流媒体看 **蜂王尊享版（500GB/月）**。
 > - **放心点：** 深港 IEPL 专线、套餐不限设备数，适合预算敏感但又不想只看普通中转线路的用户。
 > - **先确认：** 当前直接使用官方客户端，暂不建议按旧教程优先折腾 Clash、Shadowrocket、小火箭等通用客户端；套餐、节点和解锁状态以官网实际显示为准。
-> - **注册入口：** [立即注册小蜜蜂](https://inva.xmfaff.cc/register?aff=oClLBb5A)
+> - **注册入口：** [立即注册小蜜蜂](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
 
 如果你现在的核心诉求是 **低价 IEPL、多设备、流媒体和日常 AI 工具都能兼顾**，小蜜蜂比单纯低价机场更值得看。它更适合已经知道自己需要一条低成本主力或稳定备用的人，而不是团队级稳定方案。
 
@@ -328,7 +328,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 
 ### 购买入口
 
-> - **立即注册：** [小蜜蜂（低价 IEPL 多设备方案）](https://inva.xmfaff.cc/register?aff=oClLBb5A)
+> - **立即注册：** [小蜜蜂（低价 IEPL 多设备方案）](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)
 > - **完整测评：** [小蜜蜂机场详细测评](https://gptvpnhelper.com/xmf/)
 
 ### 实测图
@@ -646,7 +646,7 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 | --- | --- | --- |
 | 只想选一家长期主力，不想反复比较 | [BoostNet](https://888.boostqz.com/?path=register&code=kKMFirlm) | 先看 200G/月主力档 |
 | 更看重 IEPL 线路质量和晚高峰视频体验 | [悠兔](https://999.youtu0.com/?path=register&code=erkQTmbM) | 先看 300G/月主力档 |
-| 预算敏感、设备多、想要低价 IEPL | [小蜜蜂](https://inva.xmfaff.cc/register?aff=oClLBb5A) | 轻度看年付小包，日常主力看 120GB/月或 240GB/月 |
+| 预算敏感、设备多、想要低价 IEPL | [小蜜蜂](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) | 轻度看年付小包，日常主力看 120GB/月或 240GB/月 |
 | 想先月付试用或轻量备用 | [u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) | 先看 120GB/月，确认可用后再续 |
 | 团队办公、高稳定刚需（现支持季付） | [WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) | 优先看优质专线服务 |
 
