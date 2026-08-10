@@ -1,6 +1,6 @@
 # 机场推荐 2026：稳定科学上网Clash机场，适合 ChatGPT、流媒体
 
-**内容最后更新：2026年08月08日**
+**内容最后更新：2026年08月10日**
 
 > **快速结论：**
 >
@@ -488,9 +488,13 @@ WgetCloud 已重新开放**季付（90 天）**，入门实付从原先年付 ¥
 
 ### 实测图
 
-**测速图｜WgetCloud（2026-01-18 实测）**
+**测速图｜WgetCloud（2026-08-10 实测）**
 
-<img src="https://img.petnooko.com/2026/01/e6ba0d2b15b2144394d14fd4b1d8d410.webp" alt="WgetCloud 机场测速图" loading="lazy" />
+<img src="https://img.petnooko.com/2026/08/9922aa40f9ea86da3ea2ba347f89e64c.webp" alt="WgetCloud 机场测速图" loading="lazy" />
+
+**解锁图｜WgetCloud（2026-08-10 实测）**
+
+<img src="https://img.petnooko.com/2026/08/9ccf39901853ffadb886561bcd3d3f69.webp" alt="WgetCloud 机场解锁图" loading="lazy" />
 
 ---
 
