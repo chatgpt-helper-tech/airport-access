@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月12日 05:30:20
+更新时间：2026年8月12日 10:32:13
 
-1. [Earthquake response strains Colombia's new government and rescuers](https://www.npr.org/2026/08/12/g-s1-138315/colombia-earthquake-updates)
-2. [Cristiano Ronaldo marries long-time partner Georgina Rodríguez](https://www.bbc.co.uk/news/articles/clyj0325z3ko?at_medium=RSS&at_campaign=rss)
-3. [Trump says he switched planes after Nato summit because of possible threat](https://www.bbc.co.uk/news/articles/c980r4wpl9lo?at_medium=RSS&at_campaign=rss)
-4. [Baby Shark Boy set to make K-pop debut](https://www.bbc.co.uk/news/videos/cvg7zrxknvno?at_medium=RSS&at_campaign=rss)
-5. [Bondi Beach shooting hero's assault charges dropped by police](https://www.bbc.co.uk/news/articles/crk51ky7xzlo?at_medium=RSS&at_campaign=rss)
-6. [As Death Toll From Colombia Earthquake Rises to at Least 181, Rescuers Hunt for Survivors](https://www.nytimes.com/2026/08/11/world/americas/colombia-earthquake-survivors-search.html)
-7. [Trump's dramatic plane swap hints at personal stakes of Iran war](https://www.bbc.co.uk/news/articles/cly8jexn1z9o?at_medium=RSS&at_campaign=rss)
-8. [US says helicopter fired missiles to disable ship breaking Iran blockade](https://www.bbc.co.uk/news/articles/cvg8lyyyjedo?at_medium=RSS&at_campaign=rss)
-9. [The death toll climbs from Monday's 7.4 magnitude earthquake in Colombia](https://www.npr.org/2026/08/11/nx-s1-5928036/the-death-toll-climbs-from-mondays-7-4-magnitude-earthquake-in-colombia)
-10. [Ex-Marine Robert Gilman Is Freed by Russia After 4 Years in Prison](https://www.nytimes.com/2026/08/11/world/europe/russia-robert-gilman-release.html)
+1. [Wisconsin result halts winning streak for Democratic Party's left wing](https://www.bbc.co.uk/news/articles/c9347ezzwljo?at_medium=RSS&at_campaign=rss)
+2. [Thailand Halts New Gun Permits After Mass Shooting at a School](https://www.nytimes.com/2026/08/12/world/asia/thailand-gun-permits-school-shooting.html)
+3. [Ecuadorean Fishing Boats Hit by Mystery Attackers](https://www.nytimes.com/2026/08/12/world/americas/ecuador-fishing-boat-strikes.html)
+4. [Trump Tariffs Force Some Canadian Companies to Move South of the Border](https://www.nytimes.com/2026/08/12/world/canada/canada-tariffs-manufacturing-trade-trump.html)
+5. [How a road could change West Africa's urban future](https://www.npr.org/2026/08/12/nx-s1-5901327/west-africa-trade-growth-economy-nigeria-ghana-lagos)
+6. [Tata Group Chairman N Chandrasekaran to step down in February](https://www.bbc.co.uk/news/articles/c1512909pgpo?at_medium=RSS&at_campaign=rss)
+7. [How Nigel Farage Ended Up Running Against Count Binface in Clacton](https://www.nytimes.com/2026/08/12/world/europe/count-binface-nigel-farage-clacton.html)
+8. [Singapore and S Korea pull Trader Joe's seasoning over poppy seeds](https://www.bbc.co.uk/news/articles/cdewpklnzwxo?at_medium=RSS&at_campaign=rss)
+9. [In Bali, a Quest to Restore the Sacred Glow of Fireflies](https://www.nytimes.com/2026/08/12/world/asia/bali-restore-fireflies.html)
+10. [Former U.S. Marine held in Russia on disputed charges has been released](https://www.npr.org/2026/08/12/g-s1-138323/former-us-marine-russia)
 <!-- daily-check end -->
