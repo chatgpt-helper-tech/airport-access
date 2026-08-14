@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月14日 08:31:02
+更新时间：2026年8月14日 10:34:05
 
-1. [Farage Wins Special U.K. Election That He Initiated, as Expected](https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html)
-2. [Another Day of Extreme Heat Bakes Europe, but Relief Is on the Horizon](https://www.nytimes.com/2026/08/14/weather/europe-extreme-weather-heat-wave.html)
-3. ['Unprecedented' rains in Japan kill six people](https://www.bbc.co.uk/news/articles/cq561gpen8lo?at_medium=RSS&at_campaign=rss)
-4. [New aircraft carrier heads toward Mideast after reports of issues on long-deployed USS Lincoln](https://www.npr.org/2026/08/14/nx-s1-5931183/new-aircraft-carrier-heads-toward-mideast-after-reports-of-issues-on-long-deployed-uss-lincoln)
-5. [Afghan Women Erased From Public Life in Five Years of Taliban Rule](https://www.nytimes.com/2026/08/13/world/asia/afghan-women-taliban-rule.html)
-6. [Will Sudan’s El Obeid Become the Next El Fasher? What to Know.](https://www.nytimes.com/2026/08/14/world/africa/el-obeid-sudan-war-el-fasher.html)
-7. [US says dozens of countries helped China dodge Trump's tariffs](https://www.bbc.co.uk/news/articles/c78gy6ep3n5o?at_medium=RSS&at_campaign=rss)
-8. [Conditions on US aircraft carrier at sea for more than 250 days raise alarms](https://www.bbc.co.uk/news/articles/cyvl2d5j52lo?at_medium=RSS&at_campaign=rss)
-9. [Engine parts smashed Ryanair window that man's head was sucked out of, report says](https://www.bbc.co.uk/news/articles/cr59j4z3vl8o?at_medium=RSS&at_campaign=rss)
-10. [Hit hard by the earthquake in western Colombia, the mayor of Cali gets to work](https://www.npr.org/2026/08/13/nx-s1-5930188/around-the-clock-search-continues-to-reach-victims-of-the-7-4-earthquake-in-colombia)
+1. [From Europe to Asia, floods to heatwaves, world experiences weather shocks](https://www.npr.org/2026/08/14/g-s1-138727/europe-asia-floods-heatwaves-world-weather)
+2. [Kevin Rideout, American Missionary Kidnapped in Niger, Is Released](https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html)
+3. [US missionary released following kidnap in Niger, Christian group says](https://www.bbc.co.uk/news/articles/ckg40jvvkp7o?at_medium=RSS&at_campaign=rss)
+4. [Russia Campaigned to Derail Moldova’s Pro-Western Government](https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html)
+5. [Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan](https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html)
+6. [As Europe Gets Hotter, Its Transportation Systems Struggle to Cope](https://www.nytimes.com/2026/08/14/world/europe/heat-trains-transportation-roads.html)
+7. [Palestinian Rappers Shabjdeed and Saint Levant in Spat Over Authenticity](https://www.nytimes.com/2026/08/14/world/middleeast/shabjdeed-saint-levant-slv.html)
+8. [After Notre-Dame Fire, France Restored the Cathedral — but Not These Windows](https://www.nytimes.com/2026/08/14/world/europe/notre-dame-windows-glass-tabouret.html)
+9. [US says dozens of countries helped China dodge Trump's tariffs](https://www.bbc.co.uk/news/articles/c78gy6ep3n5o?at_medium=RSS&at_campaign=rss)
+10. [Stolen Matisse artworks recovered by police in Brazil](https://www.bbc.co.uk/news/articles/c1l1ym96ydvo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
