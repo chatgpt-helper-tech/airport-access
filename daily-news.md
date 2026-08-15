@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月14日 14:34:57
+更新时间：2026年8月15日 01:32:39
 
-1. [Kevin Rideout, American Missionary Kidnapped in Niger, Is Released](https://www.nytimes.com/2026/08/14/world/africa/american-missionary-niger-rideout-released.html)
-2. [Russia Campaigned to Derail Moldova’s Pro-Western Government](https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html)
-3. [With Trump’s Hamas Deal in Peril, Kushner Set to Visit Israel for Gaza Talks](https://www.nytimes.com/2026/08/14/world/middleeast/jared-kushner-visit-israel-hamas-deal.html)
-4. [Builders unearth €9m gold loot sealed in walls of Belgian property](https://www.bbc.co.uk/news/articles/c5ydzg0dnz7o?at_medium=RSS&at_campaign=rss)
-5. [Record-Breaking Rainfall Leaves Eight Dead and Thousands Stranded in Japan](https://www.nytimes.com/2026/08/14/world/asia/chiba-tokyo-flood-rain-deaths.html)
-6. [Heat is Hammering Europe, Again. Here’s What That Looks Like.](https://www.nytimes.com/2026/08/14/world/europe/europe-heat-wave-photos.html)
-7. [Instagram accounts fuelling Ceuta crisis with paid advice for help to cross](https://www.bbc.co.uk/news/articles/c89n20wj9kko?at_medium=RSS&at_campaign=rss)
-8. [U.S. missionary who was kidnapped in Niger is released](https://www.npr.org/2026/08/14/nx-s1-5931225/kidnapped-us-missionary-released)
-9. [Farage Wins Special U.K. Election That He Initiated, as Expected](https://www.nytimes.com/2026/08/14/world/europe/farage-binface-clacton-result-byelection.html)
-10. [Presidential vote counting halted in Zambia over alleged attacks on polling staff](https://www.bbc.co.uk/news/articles/c5yr8r04edvo?at_medium=RSS&at_campaign=rss)
+1. [A Prominent Mexican Politician Says U.S. Revoked His Visa](https://www.nytimes.com/2026/08/14/world/americas/mexico-visas-lopez-beltran.html)
+2. [Jason Arday, Cambridge Professor Accused of Plagiarism, Is Found Dead](https://www.nytimes.com/2026/08/14/world/europe/jason-arday-dead.html)
+3. [Russia Campaigned to Derail Moldova’s Pro-Western Government](https://www.nytimes.com/2026/08/14/world/europe/russia-moldova-putin.html)
+4. [Many Iranians are heading to Turkey to escape the ongoing war's heavy toll](https://www.npr.org/2026/08/14/nx-s1-5931244/many-iranians-are-heading-to-turkey-to-escape-the-ongoing-wars-heavy-toll)
+5. [Dozens injured and thousands evacuated in Croatia wildfire](https://www.bbc.co.uk/news/articles/c9342wn2x27o?at_medium=RSS&at_campaign=rss)
+6. [Britain’s Farage Takes a Page From Trump’s Playbook Amid Investigations](https://www.nytimes.com/2026/08/14/world/europe/farage-britain-trump-playbook-analysis.html)
+7. [Mangione admits killing healthcare CEO and pleads guilty to federal charges](https://www.bbc.co.uk/news/articles/cwy0nlq1l2wo?at_medium=RSS&at_campaign=rss)
+8. [Afghan women tell the BBC their lives are unrecognisable after five years of Taliban rule](https://www.bbc.co.uk/news/articles/clyje43dz4eo?at_medium=RSS&at_campaign=rss)
+9. [US aircraft carrier on way to relieve USS Lincoln after issues reported on board](https://www.bbc.co.uk/news/articles/c171yp5zdrxo?at_medium=RSS&at_campaign=rss)
+10. [Activists try to deliver aid to Palestinians in homes besieged by Israeli settlers](https://www.bbc.co.uk/news/articles/c1w1ylw0p3no?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
