@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月17日 03:39:53
+更新时间：2026年8月17日 07:37:52
 
-1. [Trump says US to scale back South Korea military drills after it stayed out of Iran war](https://www.bbc.co.uk/news/articles/cx2lll7zvn0o?at_medium=RSS&at_campaign=rss)
-2. [Ferrari's first ever electric car sold for record $40m at auction](https://www.bbc.co.uk/news/articles/c77ggpgrp2do?at_medium=RSS&at_campaign=rss)
-3. [Liechtenstein Changes Its Law to Allow Women to Ascend the Throne](https://www.nytimes.com/2026/08/16/world/europe/liechtenstein-royal-succession-women.html)
-4. [Kushner Meets With Hamas to Advance Trump’s Gaza Plan](https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html)
-5. [Kushner meets with Hamas on the Gaza road map ahead of talks with Netanyahu](https://www.npr.org/2026/08/16/g-s1-138948/kushner-gaza-hamas-netanyahu-egypt-talks)
-6. [Trump envoy Kushner meets Hamas leader to push Gaza peace plan](https://www.bbc.co.uk/news/articles/c77gg5vn44yo?at_medium=RSS&at_campaign=rss)
-7. [Two dead and hundreds evacuated after twin fires break out on Greek island](https://www.bbc.co.uk/news/articles/c87nnwlpe5no?at_medium=RSS&at_campaign=rss)
-8. [Russia says at least seven killed in largest Ukrainian attack of 2026](https://www.bbc.co.uk/news/articles/c1411pgje8xo?at_medium=RSS&at_campaign=rss)
-9. [Teen suspect in Virginia campus shooting found hiding in closet](https://www.bbc.co.uk/news/articles/c0l5583903yo?at_medium=RSS&at_campaign=rss)
-10. [As Iran War Turns Into Economic Battle, a New U.S. Strategy Recalls Old Ones](https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html)
+1. [Art Heist: 4 Antonello da Messina Paintings Stolen From Sicily](https://www.nytimes.com/2026/08/16/world/europe/italy-renaissance-art-heist.html)
+2. [Ukrainian strikes kill six in Russia, acting governor says](https://www.bbc.co.uk/news/articles/cn7n4lm11vro?at_medium=RSS&at_campaign=rss)
+3. [Trump says US to reduce military drills with South Korea after it stayed out of Iran war](https://www.bbc.co.uk/news/articles/cx2lll7zvn0o?at_medium=RSS&at_campaign=rss)
+4. [Trump orders Pentagon to scale back joint exercises with South Korea](https://www.npr.org/2026/08/17/g-s1-138969/trump-exercises-south-korea)
+5. [Trump envoy Kushner arrives in Israel after rare Hamas talks on Gaza peace plan](https://www.bbc.co.uk/news/articles/c77gg5vn44yo?at_medium=RSS&at_campaign=rss)
+6. [Ebola outbreak in DR Congo becomes deadliest in its history](https://www.bbc.co.uk/news/articles/cvgll74vvydo?at_medium=RSS&at_campaign=rss)
+7. [Record rains drench South Korean city as landslide kills one](https://www.bbc.co.uk/news/articles/cvgww971nn2o?at_medium=RSS&at_campaign=rss)
+8. [U.S. and Iran Blow Through Deadline to Agree to a Broad Deal to End War](https://www.nytimes.com/2026/08/17/world/middleeast/iran-mou-deadline.html)
+9. [‘Posh George,’ the Convicted Fraudster in Nigel Farage’s Inner Circle](https://www.nytimes.com/2026/08/17/world/europe/posh-george-nigel-farage-reform.html)
+10. [China Wants Its Data to Power the World’s A.I.](https://www.nytimes.com/2026/08/17/world/asia/china-ai-data-chatbots.html)
 <!-- daily-check end -->
