@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月16日 12:34:53
+更新时间：2026年8月17日 03:39:53
 
-1. [Europe's tallest Virgin Mary statue unveiled in rural Poland](https://www.bbc.co.uk/news/articles/cn5nnlq2pwpo?at_medium=RSS&at_campaign=rss)
-2. [A Shooting at the U.S. Consulate in Toronto Exposes a Neighborhood’s Guns-for-Hire Network](https://www.nytimes.com/2026/08/16/world/canada/us-consulate-synagogue-shooting-toronto-canada.html)
-3. [Twelve killed as Polish bus veers off Hungarian motorway](https://www.bbc.co.uk/news/articles/ckg4424zd7go?at_medium=RSS&at_campaign=rss)
-4. [Five killed as Russia launches fresh aerial attacks across Ukraine](https://www.bbc.co.uk/news/articles/c1411pgje8xo?at_medium=RSS&at_campaign=rss)
-5. [Ukraine launches one of its largest aerial attacks of the war, killing at least 6 people in Russia](https://www.npr.org/2026/08/16/nx-s1-5933006/ukraine-aerial-attack-6-dead-russia)
-6. [As Iran War Turns Into Economic Battle, a New U.S. Strategy Recalls Old Ones](https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html)
-7. [Qatar denies capturing three Iranian pilots after downing fighter jets](https://www.bbc.co.uk/news/articles/cj4kk8kz271o?at_medium=RSS&at_campaign=rss)
-8. [How a Ukrainian Bank Worker Came to Face Life in a Russian Prison](https://www.nytimes.com/2026/08/16/world/europe/russia-detained-ukrainians-war-murdid.html)
-9. [Trump’s Other Hold on the Americas: The Visa](https://www.nytimes.com/2026/08/16/world/americas/trump-americas-visas.html)
-10. [Hurricane Lala lashes Hawaii with strong winds and torrential rain](https://www.bbc.co.uk/news/articles/crmrr7kjy9vo?at_medium=RSS&at_campaign=rss)
+1. [Trump says US to scale back South Korea military drills after it stayed out of Iran war](https://www.bbc.co.uk/news/articles/cx2lll7zvn0o?at_medium=RSS&at_campaign=rss)
+2. [Ferrari's first ever electric car sold for record $40m at auction](https://www.bbc.co.uk/news/articles/c77ggpgrp2do?at_medium=RSS&at_campaign=rss)
+3. [Liechtenstein Changes Its Law to Allow Women to Ascend the Throne](https://www.nytimes.com/2026/08/16/world/europe/liechtenstein-royal-succession-women.html)
+4. [Kushner Meets With Hamas to Advance Trump’s Gaza Plan](https://www.nytimes.com/2026/08/16/world/middleeast/kushner-hamas-talks.html)
+5. [Kushner meets with Hamas on the Gaza road map ahead of talks with Netanyahu](https://www.npr.org/2026/08/16/g-s1-138948/kushner-gaza-hamas-netanyahu-egypt-talks)
+6. [Trump envoy Kushner meets Hamas leader to push Gaza peace plan](https://www.bbc.co.uk/news/articles/c77gg5vn44yo?at_medium=RSS&at_campaign=rss)
+7. [Two dead and hundreds evacuated after twin fires break out on Greek island](https://www.bbc.co.uk/news/articles/c87nnwlpe5no?at_medium=RSS&at_campaign=rss)
+8. [Russia says at least seven killed in largest Ukrainian attack of 2026](https://www.bbc.co.uk/news/articles/c1411pgje8xo?at_medium=RSS&at_campaign=rss)
+9. [Teen suspect in Virginia campus shooting found hiding in closet](https://www.bbc.co.uk/news/articles/c0l5583903yo?at_medium=RSS&at_campaign=rss)
+10. [As Iran War Turns Into Economic Battle, a New U.S. Strategy Recalls Old Ones](https://www.nytimes.com/2026/08/16/world/middleeast/iran-war-us-trump.html)
 <!-- daily-check end -->
