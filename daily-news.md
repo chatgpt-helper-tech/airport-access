@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月19日 15:32:59
+更新时间：2026年8月20日 01:38:11
 
-1. [U.A.E. Announces Halt to Trade With Iran Amid Trump’s Push To Isolate Tehran](https://www.nytimes.com/2026/08/19/world/middleeast/uae-cuts-trade-ties-iran-missiles.html)
-2. [Israel Opens Criminal Investigation Into Killings of Hind Rajab and Gaza Medical Workers](https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigation-hind-rajab-gaza-workers.html)
-3. [Greetings from Trouville-sur-Mer, a beach town little changed since Monet painted it](https://www.npr.org/2026/08/19/g-s1-139174/trouville-sur-mer-france-normandy-monet-beach)
-4. [South Korea shortens war games with US, citing Washington request](https://www.bbc.co.uk/news/articles/cnvn0j31qj8o?at_medium=RSS&at_campaign=rss)
-5. [After Youth Outcry, Vietnam Says Former Official Caused Fatal Crash at Tree 55](https://www.nytimes.com/2026/08/19/world/asia/vietnam-crash-tree-55-community-party-official.html)
-6. [Chinese Comic Investigated After Singing a Riff of a Patriotic Song](https://www.nytimes.com/2026/08/19/us/guo-degang-china-comic-investigated.html)
-7. [Israel confirms it opened fire on vehicle carrying five-year-old Hind Rajab in Gaza](https://www.bbc.co.uk/news/articles/crl7yjlpx2po?at_medium=RSS&at_campaign=rss)
-8. [Six tourists and pilot killed in Kenya helicopter crash](https://www.bbc.co.uk/news/articles/clylkv4z59vo?at_medium=RSS&at_campaign=rss)
-9. [Ukraine’s Ex-Defense Minister Calls for Election, Cementing Break With Zelensky](https://www.nytimes.com/2026/08/19/world/europe/ukraine-fedorov-zelensky-elections.html)
-10. [Ukrainian man arrested in Croatia over Nord Stream pipeline blasts](https://www.bbc.co.uk/news/articles/c78gp7l5348o?at_medium=RSS&at_campaign=rss)
+1. [Trump threatens 'tremendous economic consequences' on any country helping Iran](https://www.bbc.co.uk/news/articles/c2k7e83ynj4o?at_medium=RSS&at_campaign=rss)
+2. [Israel opens up bids for highly-sensitive West Bank settlement project](https://www.bbc.co.uk/news/articles/cly50gn1e54o?at_medium=RSS&at_campaign=rss)
+3. [Australia 'outraged' after Israeli decision not to prosecute over killing of aid worker in Gaza](https://www.bbc.co.uk/news/articles/cp87g29r718o?at_medium=RSS&at_campaign=rss)
+4. [Trump and Canada’s Carney Seem to Make Progress on a Tariff Deal, but Questions Linger](https://www.nytimes.com/2026/08/19/world/canada/trump-canada-tariffs-carney-deal-trade.html)
+5. [Ecuador intelligence chief and five Americans killed in Kenya helicopter crash](https://www.bbc.co.uk/news/articles/clylkv4z59vo?at_medium=RSS&at_campaign=rss)
+6. [More than 1,000 Afghan refugees have been stuck at a camp in Qatar since 2021](https://www.npr.org/2026/08/19/nx-s1-5936482/more-than-1-000-afghan-refugees-have-been-stuck-at-a-camp-in-qatar-since-2021)
+7. [Sacked Ukrainian defence minister calls for presidential election](https://www.bbc.co.uk/news/articles/cdew8n9erlwo?at_medium=RSS&at_campaign=rss)
+8. [Israel Opens Criminal Investigation Into Killings of Hind Rajab and Gaza Medical Workers](https://www.nytimes.com/2026/08/19/world/middleeast/israel-criminal-investigation-hind-rajab-gaza-workers.html)
+9. [Amid the Iran war, the U.S. has pivoted it's geopolitical attention away from Asia](https://www.npr.org/2026/08/19/nx-s1-5935388/amid-the-iran-war-the-u-s-has-pivoted-its-geopolitical-attention-away-from-asia)
+10. [North Korean Official Dismisses Reduced Drills Between US and South Korea](https://www.nytimes.com/2026/08/19/world/asia/north-korea-trump-military-drills.html)
 <!-- daily-check end -->
