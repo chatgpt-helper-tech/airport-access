@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月22日 04:32:27
+更新时间：2026年8月22日 11:36:11
 
-1. [Russian strikes on Ukraine kill two, officials say, a day after deadly attack on mall](https://www.bbc.co.uk/news/articles/c39egw7nmk2o?at_medium=RSS&at_campaign=rss)
-2. ['We have more work to do', says Canada negotiator as US trade deadline looms](https://www.bbc.co.uk/news/articles/czjlr0evy0do?at_medium=RSS&at_campaign=rss)
-3. [Canada-U.S. Tariff Talks Continue as Trump’s Midnight Deadline Looms](https://www.nytimes.com/2026/08/21/world/canada/trump-carney-tariffs-trade-talks.html)
-4. [Two injured in stabbing attack at Canada Sikh temple](https://www.bbc.co.uk/news/articles/ce8l7w0n0jeo?at_medium=RSS&at_campaign=rss)
-5. [TikTok to pay $400m to US in one of largest child privacy settlements](https://www.bbc.co.uk/news/articles/cwyr0l45xjro?at_medium=RSS&at_campaign=rss)
-6. [Big tech companies will have to pay to publish Australian news content under new laws](https://www.npr.org/2026/08/21/nx-s1-5939814/big-tech-companies-will-have-to-pay-to-publish-australian-news-content-under-new-laws)
-7. [One killed in sword attack at Swedish school](https://www.bbc.co.uk/news/articles/c3r0g7gj2n3o?at_medium=RSS&at_campaign=rss)
-8. [Palestinian Teenager Killed After Israeli Settlers Enter West Bank Village](https://www.nytimes.com/2026/08/21/world/middleeast/palestinian-teenager-killed-israeli-settlers-west-bank.html)
-9. [Tupac murder accused told police in 2008 his nephew fired fatal shots](https://www.bbc.co.uk/news/articles/cly57kzgr0ko?at_medium=RSS&at_campaign=rss)
-10. [Germany Identifies a Plot After Finding a Weapons Cache, but Names No Culprit](https://www.nytimes.com/2026/08/21/world/europe/germany-foreign-plot-hidden-guns.html)
+1. [Canada says it will match US tariffs 'dollar for dollar' as trade talks break down](https://www.bbc.co.uk/news/articles/cvgvyy4x2mvo?at_medium=RSS&at_campaign=rss)
+2. [Rescuers dig through Ukraine mall wreckage as Zelensky condemns 'despicable' strike](https://www.bbc.co.uk/news/articles/c39egw7nmk2o?at_medium=RSS&at_campaign=rss)
+3. [What Does Harry and Meghan’s Return to England Mean for Their Children?](https://www.nytimes.com/2026/08/22/world/europe/harry-meghan-children-schools.html)
+4. [Carney Stands Up to Trump in U.S.-Canada Trade War](https://www.nytimes.com/2026/08/22/world/canada/carney-trump-canada-tariffs.html)
+5. [Close and Loving, or Oppressive? A Novelist Takes Aim at Italian Families.](https://www.nytimes.com/2026/08/22/world/europe/italian-families-novel-anniversary-bajani.html)
+6. [Lebanon’s Efforts to Tame Hezbollah Stall Amid Israel War](https://www.nytimes.com/2026/08/22/world/middleeast/lebanon-hezbollah-israel-diplomacy.html)
+7. [How ‘The Rest Is History’ Podcast Conquered the World](https://www.nytimes.com/2026/08/22/world/europe/rest-is-history-podcast-sandbrook-holland.html)
+8. [How a Trump Envoy Uses Vodka and Dirty Jokes to Conduct U.S. Diplomacy](https://www.nytimes.com/2026/08/22/world/europe/belarus-john-coale-lukashenko-trump.html)
+9. [Father leaves 7-year-old son alone on Mount Fuji to continue hike, reports say](https://www.bbc.co.uk/news/articles/c93403wg288o?at_medium=RSS&at_campaign=rss)
+10. [Canada-U.S. Trade War Escalates as Talks Collapse](https://www.nytimes.com/2026/08/21/world/canada/trump-tariffs-trade-no-deal-carney-canada.html)
 <!-- daily-check end -->
