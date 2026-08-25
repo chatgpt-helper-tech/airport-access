@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月25日 05:35:30
+更新时间：2026年8月25日 11:36:19
 
-1. [Indonesians brave choking smoke to pray for rain as country battles wildfires](https://www.npr.org/2026/08/25/nx-s1-5944062/indonesia-battles-wildfires)
-2. [The UK will help Ukraine make long-range missiles by sharing classified tech information](https://www.npr.org/2026/08/25/nx-s1-5944059/the-uk-will-help-ukraine-make-long-range-missiles-by-sharing-classified-tech-information)
-3. [Songs created by AI banned from Australia's music charts](https://www.bbc.co.uk/news/articles/c20vl4vm2pno?at_medium=RSS&at_campaign=rss)
-4. [Iran says it is ready for what US calls 'greatest financial offensive ever'](https://www.bbc.co.uk/news/articles/c0qxew81y83o?at_medium=RSS&at_campaign=rss)
-5. [NZ religious sect leader jailed over death of Chinese follower](https://www.bbc.co.uk/news/articles/c3d79z4z953o?at_medium=RSS&at_campaign=rss)
-6. [French tourist dies in Death Valley after car gets stuck in mud](https://www.bbc.co.uk/news/articles/clyl81jlzr2o?at_medium=RSS&at_campaign=rss)
-7. [UK PM Burnham vows support for Ukraine despite 'outrageous threats' from Russia](https://www.bbc.co.uk/news/articles/clyqypkrzq5o?at_medium=RSS&at_campaign=rss)
-8. [US removes Syria from list of state sponsors of terrorism](https://www.bbc.co.uk/news/articles/c33knmyl0y5o?at_medium=RSS&at_campaign=rss)
-9. [Moment tornado tears through southern France](https://www.bbc.co.uk/news/videos/ckg8wkd0j7do?at_medium=RSS&at_campaign=rss)
-10. [Six months on, U.S. Navy families who evacuated Bahrain remain in limbo](https://www.npr.org/2026/08/24/nx-s1-5943188/six-months-on-u-s-navy-families-who-evacauated-bahrain-remain-in-limbo)
+1. [Trump calls leaders to isolate Iran. And, SCOTUS backs Trump for now on mail-in voting](https://www.npr.org/2026/08/25/g-s1-140004/up-first-newsletter-iran-economic-war-scotus-mail-in-voting-dhs-privacy)
+2. [China warns it will safeguard its interests after US widens sanctions against Iran](https://www.bbc.co.uk/news/articles/clyl8965j5go?at_medium=RSS&at_campaign=rss)
+3. [Iran May Have Little to Lose as U.S. Tries to Squeeze Its Economy](https://www.nytimes.com/2026/08/25/world/middleeast/iran-us-economy-sanctions.html)
+4. [US firefighters say major blaze near Reno about a quarter contained](https://www.bbc.co.uk/news/articles/c4gqlp0yzyjo?at_medium=RSS&at_campaign=rss)
+5. [Trump Administration to Return Diplomats to Middle East Embassies](https://www.nytimes.com/2026/08/25/world/middleeast/us-diplomats-middle-east-embassies.html)
+6. [How U.S.-Canada Tariff Negotiations Turned Into an All-Out Trade War](https://www.nytimes.com/2026/08/25/world/canada/trump-carney-trade-war-tariffs.html)
+7. [Lockerbie bombing trial postponed days before it was due to start](https://www.bbc.co.uk/news/articles/cq63rmj1zl1o?at_medium=RSS&at_campaign=rss)
+8. [Can Trump's economic war against Iran do what airstrikes and negotiations couldn't?](https://www.npr.org/2026/08/25/nx-s1-5943572/trump-iran-sanctions)
+9. [Christian Convert Who Fled Iran and Was Deported By Trump Finds New Home](https://www.nytimes.com/2026/08/25/world/middleeast/artemis-ghasemzadeh-iran-christian-us-deported-canada-asylum.html)
+10. [What Happened to the Coveted Western Tanks Sent to Ukraine?](https://www.nytimes.com/2026/08/25/world/europe/ukraine-russia-tanks.html)
 <!-- daily-check end -->
