@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月27日 11:32:45
+更新时间：2026年8月27日 14:36:19
 
-1. [Live Updates: Rescuers Scour Himalayan Valleys for Survivors After Devastating Flood](https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods)
-2. [Man who attacked nun on CCTV in Jerusalem acquitted on grounds of mental health](https://www.bbc.co.uk/news/articles/cpwl54kddeko?at_medium=RSS&at_campaign=rss)
-3. [Norway's royal family gathers at King Harald's bedside as his condition worsens](https://www.bbc.co.uk/news/articles/cqxvrnvrr5do?at_medium=RSS&at_campaign=rss)
-4. [Meta reaches $17B settlement. And, nuclear regulator to abandon radiation safety rule](https://www.npr.org/2026/08/27/g-s1-140414/up-first-newsletter-meta-settlement-mail-in-voting-nrc-regulations-nepal-tibet-flooding)
-5. [At least 1,500 missing after deadly Nepal-Tibet floods](https://www.npr.org/2026/08/27/nx-s1-5946309/nepal-tibet-deadly-floods)
-6. [Tanzania's VP expelled from ruling party for indiscipline as his successor named](https://www.bbc.co.uk/news/articles/cp3kwgyp1vwo?at_medium=RSS&at_campaign=rss)
-7. [Where Drones Cannot See, the Ukraine War Is a Deadly Game of Cat and Mouse](https://www.nytimes.com/2026/08/27/world/europe/ukraine-russia-war-zaporizhzhia-frontline-fighting.html)
-8. [What we know about deadly Nepal-Tibet floods](https://www.bbc.co.uk/news/articles/cd948kn02e5o?at_medium=RSS&at_campaign=rss)
-9. [Collapsed glacier likely caused devastating Nepal-Tibet floods, scientists say](https://www.bbc.co.uk/news/articles/cly464k252yo?at_medium=RSS&at_campaign=rss)
-10. [Why Some in Canada Want Out of the F-35 Deal With the U.S.](https://www.nytimes.com/2026/08/27/world/canada/trade-war-canada-us-f35-carney-trump.html)
+1. ['Silence is complicity' - top footballer hits out over Cameroon femicides](https://www.bbc.co.uk/news/articles/cgjq49g8wwqo?at_medium=RSS&at_campaign=rss)
+2. [Qatari Prime Minister Travels to Tehran as Iran War Nears Six-Month Mark](https://www.nytimes.com/2026/08/27/world/middleeast/qatar-visit-iran.html)
+3. [Live Updates: Helicopters Rescue Nepal Flood Survivors, With More Than 1,000 Still Missing](https://www.nytimes.com/live/2026/08/27/world/nepal-tibet-flash-floods)
+4. [Board of Peace's Gaza envoy criticises Israeli strikes and Hamas actions](https://www.bbc.co.uk/news/articles/cew92l07kwzo?at_medium=RSS&at_campaign=rss)
+5. [Convicted Bosnian Serb war criminal Mladić dies aged 84](https://www.bbc.co.uk/news/articles/c5ywxpryj95o?at_medium=RSS&at_campaign=rss)
+6. [Ratko Mladic, ex-Bosnian Serb warlord who oversaw atrocities in Bosnia, has died at 84](https://www.npr.org/2026/08/27/nx-s1-5946375/ratko-mladic-dead)
+7. [After Whiskey With His Captors, Cuban Dissident Lands in a Miami Maelstrom](https://www.nytimes.com/2026/08/27/world/americas/cuba-exile-otero-alcantara.html)
+8. [Thieves steal Bronze Age artifacts from Spanish museum in four-minute heist](https://www.bbc.co.uk/news/articles/ckgw9gw34yqo?at_medium=RSS&at_campaign=rss)
+9. [Saudi Response to Houthis’ Attacks on Ships May Be a New War](https://www.nytimes.com/2026/08/27/world/middleeast/saudi-arabia-yemen-houthis-war.html)
+10. [Russian Sanctions Are Fueling a Canadian Car Theft Epidemic](https://www.nytimes.com/2026/08/27/world/canada/canada-car-theft-russia-sanctions.html)
 <!-- daily-check end -->
