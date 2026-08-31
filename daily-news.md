@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年8月31日 10:37:01
+更新时间：2026年8月31日 13:31:15
 
-1. [Russia's jet-powered drones bring empty Kyiv supermarket shelves and rattle Ukrainians](https://www.npr.org/2026/08/31/g-s1-141181/russia-ukraine-war)
-2. [South African airline defends low-altitude aerial stunt over packed stadium](https://www.bbc.co.uk/news/articles/c3rew8jqny5o?at_medium=RSS&at_campaign=rss)
-3. [U.S. and Iran Exchange Strikes Overnight After Monthlong Calm](https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html)
-4. [Nonstop Russian Drones Make for Dangerous New Phase of War in Kyiv](https://www.nytimes.com/2026/08/31/world/europe/ukraine-kyiv-drones-russia-sirens.html)
-5. [Attacks flare between U.S., Iran after month-long pause](https://www.npr.org/2026/08/31/g-s1-141175/attacks-flare-us-iran)
-6. [South Korea’s Unification Church Leader Gets 2 Years in Prison for Corruption](https://www.nytimes.com/2026/08/31/world/asia/south-korea-unification-church-leader-prison.html)
-7. [For Nepal’s Young Leader, Flood Recovery Will Be a Herculean Task](https://www.nytimes.com/2026/08/31/world/asia/nepal-floods-balen-shah-gen-z.html)
-8. [Dolly Parton laid to rest alongside husband in Nashville](https://www.bbc.co.uk/news/articles/cew95ke74l7o?at_medium=RSS&at_campaign=rss)
-9. [China Prepared for One Kind of Himalayan Flood. Then a Different Disaster Struck.](https://www.nytimes.com/2026/08/31/world/asia/china-nepal-tibet-flood-himalayas-risk.html)
-10. [These Generals Fought for Israel. Now They See ‘Jewish Terrorism’ as the Threat.](https://www.nytimes.com/2026/08/31/world/middleeast/west-bank-israel.html)
+1. [Man Arrested in Switzerland After Deadly Shooting at Rave](https://www.nytimes.com/2026/08/31/world/europe/switzerland-shooting-rave-suspect-arrest.html)
+2. [Man arrested after Swiss rave shooting that killed woman](https://www.bbc.co.uk/news/articles/cddv92n194vo?at_medium=RSS&at_campaign=rss)
+3. [One dead and more than a dozen missing after 'terrifying' flash flood hits Grand Canyon](https://www.bbc.co.uk/news/articles/clylkjyez1do?at_medium=RSS&at_campaign=rss)
+4. [Spanish Leader Says 5,000 Migrants Are Still in Ceuta, Weeks After Border Surge](https://www.nytimes.com/2026/08/31/world/europe/ceuta-migrants-pedro-sanchez-north-africa.html)
+5. [U.S. and Iran Exchange Strikes Overnight After Monthlong Calm](https://www.nytimes.com/2026/08/31/world/middleeast/us-iran-uae-jordan-attacks.html)
+6. [The jury's options in Lindsay Clancy's murder trial](https://www.bbc.co.uk/news/articles/c93vgv4kr49o?at_medium=RSS&at_campaign=rss)
+7. [Nepal's hesitance to accept foreign help for flood relief under scrutiny](https://www.npr.org/2026/08/31/nx-s1-5949971/nepals-hesitance-help-flood)
+8. [Search continues for 18 passengers after ferry capsized in northern Cyprus](https://www.bbc.co.uk/news/articles/c1mv5ggg1l8o?at_medium=RSS&at_campaign=rss)
+9. [Wartime Presidents of Russia and Iran Rally With Chinese and Indian Leaders](https://www.nytimes.com/2026/08/31/world/asia/putin-xi-modi-sco.html)
+10. [U.S., Venezuela strike oil deal. And, the staggering hidden toll of U.S. heat deaths](https://www.npr.org/2026/08/31/g-s1-141187/up-first-newsletter-venezuela-oil-iran-war-house-government-funding-grand-canyon-flash-flooding)
 <!-- daily-check end -->
