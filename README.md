@@ -28,7 +28,7 @@
 | 预算敏感、设备多、看剧和日常 AI | **小蜜蜂：¥20/月，120GB/月** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
 | 月付试用或轻量备用 | **u1s1：¥20/月，120GB/月** | 月付门槛低，适合先试水 | 注意订阅重置规则 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
 
-**其他章节：** [核心能力对比](#compare-table) · [按场景怎么选](#scene-guide) · [流量怎么选](#traffic-guide) · [官方客户端还是 Clash](#beginner-client) · [购买前检查清单](#purchase-checklist) · [常见问题 FAQ](#faq)
+**其他章节：** [核心能力对比](#compare-table) · [节点每日观测](#node-daily) · [按场景怎么选](#scene-guide) · [流量怎么选](#traffic-guide) · [官方客户端还是 Clash](#beginner-client) · [购买前检查清单](#purchase-checklist) · [常见问题 FAQ](#faq)
 
 <a id="compare-table"></a>
 
@@ -41,6 +41,22 @@
 | **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 禁 BT / P2P / PT；小白用户优先官方客户端 | [立即注册](https://tw.youtu1.com/?path=register&code=erkQTmbM) |
 | **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
 | **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
+
+<a id="node-daily"></a>
+
+## 节点可用性每日观测
+
+我们每天用官方客户端拉取订阅、逐个测试节点连通性，记录可用节点数量与比例。这一节是上面推荐名单的每日"体检报告"——数据当天有效，出问题的机场会第一时间反映在这里。
+
+| 机场名称 | 客户端 | 最后检查日期 | 是否可用 | 总节点数量 | 可用节点数量 | 可用节点比例 | 历史可用节点比例 | 稳定性 |
+|---|---|---|---:|---:|---:|---:|---:|---|
+| BoostNet | 官方客户端 | 2026-09-01 | 是 | 45 | 43 | 95.56% | 95.56% | 高 |
+| TAG | 官方客户端 | 2026-09-01 | 是 | 304 | 300 | 98.68% | 98.68% | 高 |
+| 悠兔 | 官方客户端 | 2026-09-01 | 是 | 51 | 47 | 92.16% | 92.16% | 高 |
+| 小蜜蜂 | 官方客户端 | 待检查 | 待检查 | 待检查 | 待检查 | 待检查 | 待检查 | 待检查 |
+| U1S1 | 官方客户端 | 2026-09-01 | 是 | 68 | 62 | 91.18% | 91.18% | 高 |
+
+> 说明：可用节点比例 = 当次可用节点数 / 总节点数；历史可用节点比例为长期累计均值，随每日观测持续更新。数据仅反映观测时刻的连通性，实际体验仍受本地网络、地区和平台风控影响。
 
 <a id="why-five"></a>
 
