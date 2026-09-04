@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月3日 09:36:41
+更新时间：2026年9月4日 02:31:03
 
-1. [Embattled Spanish PM insists there were no prior warnings before Ceuta crisis](https://www.bbc.co.uk/news/articles/c07lz7rn2mjo?at_medium=RSS&at_campaign=rss)
-2. [For Russia and Ukraine, an Escalating Spiral With No End in Sight](https://www.nytimes.com/2026/09/03/world/europe/russia-ukraine-escalation.html)
-3. [Lake Ontario Is One of Many Bodies of Water Caught in a Naming Fight](https://www.nytimes.com/2026/09/03/world/americas/lake-ontario-bodies-of-water-naming-disputes-south-china-sea.html)
-4. [Many Italians Long Resisted Air-Conditioning. Then Europe Got Hotter.](https://www.nytimes.com/2026/09/03/world/europe/italy-air-conditioning-heat.html)
-5. [How Do You Run for Office in a Gang War?](https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html)
-6. [The New Jet-Powered Drones That Are Breeding Anxiety in Ukraine](https://www.nytimes.com/2026/09/03/world/europe/ukraine-russia-jet-powered-drones.html)
-7. [Families of the missing in Nepal's flash floods perform symbolic cremations](https://www.npr.org/2026/09/03/nx-s1-5954190/families-of-the-missing-in-nepals-flash-floods-perform-symbolic-cremations)
-8. [China's Xi visits Egypt for the first time in a decade](https://www.npr.org/2026/09/03/nx-s1-5954184/chinas-xi-visits-egypt-for-the-first-time-in-a-decade)
-9. [Critics question legality of Venezuela oil deals](https://www.npr.org/2026/09/03/nx-s1-5954176/critics-question-legality-of-venezuela-oil-deals)
-10. [U.S.-Israel relations are on the rocks ahead of elections](https://www.npr.org/2026/09/03/nx-s1-5950045/u-s-israel-relations-are-on-the-rocks-ahead-of-elections)
+1. [How Do You Run for Office in a Gang War?](https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html)
+2. [Transplanted pig kidney works in US man's body for record 271 days](https://www.bbc.co.uk/news/articles/c305qn2jeggo?at_medium=RSS&at_campaign=rss)
+3. [US investigating if missile hit Iran wedding, Vance says](https://www.bbc.co.uk/news/articles/cy4zvk3z2k1o?at_medium=RSS&at_campaign=rss)
+4. [Norway Seizes Russian Ship, Testing Moscow in the High Arctic](https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html)
+5. [Nepali community in Texas grieves and prays for healing after flash floods](https://www.npr.org/2026/09/03/nx-s1-5954535/nepali-community-in-texas-grieves-and-prays-for-healing-after-flash-floods)
+6. [Spain’s Leader Questions Morocco Border Control During Ceuta Migrant Surge](https://www.nytimes.com/2026/09/03/world/europe/spain-morocco-ceuta-sanchez.html)
+7. [US billionaire Leon Black defies summons and sues Epstein panel](https://www.bbc.co.uk/news/articles/cddve618plzo?at_medium=RSS&at_campaign=rss)
+8. [Feminist activist and journalist Gloria Steinem dies, aged 92](https://www.bbc.co.uk/news/articles/clyeq3ngwe4o?at_medium=RSS&at_campaign=rss)
+9. [Israel Is Expected to Release Lebanese Prisoners, in Rare Sign of Progress](https://www.nytimes.com/2026/09/03/world/middleeast/israel-lebanon-prisoners-release.html)
+10. [Trump hints US would not back UK over Falkland Islands due to lack of Iran war support](https://www.bbc.co.uk/news/articles/c1kx4m70l4yo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
