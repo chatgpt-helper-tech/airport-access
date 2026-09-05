@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月5日 10:39:36
+更新时间：2026年9月5日 15:30:40
 
-1. [Trump envoys arrive in Moscow ahead of Ukraine talks, reports say](https://www.bbc.co.uk/news/articles/cx2zqp46g8eo?at_medium=RSS&at_campaign=rss)
-2. [Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches](https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html)
-3. [Trump Envoys Arrive in Moscow for Talks on Ukraine War](https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html)
-4. [The Fall of James Orr, the Man Called Farage’s Brain](https://www.nytimes.com/2026/09/05/world/europe/reform-uk-james-orr-expose.html)
-5. [Trump signs order to remove endangered species protection for grey wolves](https://www.bbc.co.uk/news/articles/c62k677d4lzo?at_medium=RSS&at_campaign=rss)
-6. [After Months at War, Brief Solace in a Party Town Far From Home](https://www.nytimes.com/2026/09/05/world/asia/uss-abraham-lincoln-thailand-pattaya.html)
-7. [Secret Dossier Adds to Evidence of Chemical Weapons in Sudan](https://www.nytimes.com/2026/09/05/world/africa/sudan-chemical-weapons-war.html)
-8. [Flee, Hide or Sit Tight? Russians Are on Edge Over Rumors of a Draft.](https://www.nytimes.com/2026/09/05/world/europe/russia-war-mobilization-draft.html)
-9. [English Museum to Repatriate Colonial-Era Human Remains](https://www.nytimes.com/2026/09/05/world/asia/museum-britain-naga-human-remains.html)
-10. [At least two dead in blast at Bolivia military barracks](https://www.bbc.co.uk/news/articles/c3v45xy67g5o?at_medium=RSS&at_campaign=rss)
+1. [At least two dead in blast at Bolivia military barracks](https://www.bbc.co.uk/news/articles/c3v45xy67g5o?at_medium=RSS&at_campaign=rss)
+2. [US hits three Iranian oil tankers after saying its warships were targeted](https://www.bbc.co.uk/news/articles/cj64rrne643o?at_medium=RSS&at_campaign=rss)
+3. [US envoys arrive in Moscow ahead of Ukraine talks](https://www.bbc.co.uk/news/articles/cx2zqp46g8eo?at_medium=RSS&at_campaign=rss)
+4. [US military hits 3 Iranian oil tankers after saying Navy warships were targeted](https://www.npr.org/2026/09/05/nx-s1-5959159/us-iran-warships-targeted)
+5. [U.S. Strikes Three Iranian ‘Shadow Network’ Oil Tankers, Military Says](https://www.nytimes.com/2026/09/05/world/middleeast/iran-us-kharg-oil-tanker-attack.html)
+6. [Huckabee Condemns ‘Terrorist’ Attacks on Palestinians in West Bank Town Hall](https://www.nytimes.com/2026/09/05/world/middleeast/huckabee-west-bank-settler-attacks.html)
+7. [Putin Orders Pause in Kyiv Strikes Ahead of Visit by U.S. Envoys](https://www.nytimes.com/2026/09/05/world/europe/russia-ukraine-witkoff-kushner-moscow.html)
+8. [What different world maps get right - and what they get wrong](https://www.bbc.co.uk/news/articles/cly5r60v4mro?at_medium=RSS&at_campaign=rss)
+9. [Two Survivors Rescued in Nepal 10 Days After Floods](https://www.nytimes.com/2026/09/05/world/asia/nepal-floods-chinese-worker-rescue.html)
+10. [How the U.S. focus on Iran is fueling a more aggressive Putin](https://www.npr.org/2026/09/05/nx-s1-5955705/how-the-u-s-focus-on-iran-is-fueling-a-more-aggressive-putin)
 <!-- daily-check end -->
