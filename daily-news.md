@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月4日 06:39:54
+更新时间：2026年9月5日 03:37:26
 
-1. [Argentina's Milei escalates Falklands dispute, seizing on Trump comments and oil tensions](https://www.npr.org/2026/09/04/g-s1-141945/milei-escalates-falklands-dispute)
-2. [2 trapped workers rescued from a hydropower tunnel 9 days after Nepal floods](https://www.npr.org/2026/09/04/g-s1-141943/workers-rescued-nepal-tunnel)
-3. [Argentine leader threatens to sanction oil firms and reiterates Falklands claim](https://www.bbc.co.uk/news/articles/clyk18g1l8ko?at_medium=RSS&at_campaign=rss)
-4. [Steve Irwin's family celebrates 'superhero' dad, 20 years after shock death](https://www.bbc.co.uk/news/articles/cjrx75ldydwo?at_medium=RSS&at_campaign=rss)
-5. [Nepal says it will need billions in funding to rebuild after flash floods](https://www.bbc.co.uk/news/videos/ce8x2401zdeo?at_medium=RSS&at_campaign=rss)
-6. [How Do You Run for Office in a Gang War?](https://www.nytimes.com/2026/09/03/world/americas/haiti-election-gangs.html)
-7. [Tensions flare as judge declines to remove juror in Lindsay Clancy trial](https://www.bbc.co.uk/news/articles/c7v4n7pv5epo?at_medium=RSS&at_campaign=rss)
-8. [Transplanted pig kidney works in US man's body for record 271 days](https://www.bbc.co.uk/news/articles/c305qn2jeggo?at_medium=RSS&at_campaign=rss)
-9. [US investigating if missile hit Iran wedding, Vance says](https://www.bbc.co.uk/news/articles/cy4zvk3z2k1o?at_medium=RSS&at_campaign=rss)
-10. [Norway Seizes Russian Ship, Testing Moscow in the High Arctic](https://www.nytimes.com/2026/09/03/world/europe/norway-russian-research-ship-arctic.html)
+1. [At least two dead in blast at Bolivia military barracks](https://www.bbc.co.uk/news/articles/c3v45xy67g5o?at_medium=RSS&at_campaign=rss)
+2. [UN votes to adopt new world map to reflect Africa's true size](https://www.bbc.co.uk/news/articles/ce30vp55dnlo?at_medium=RSS&at_campaign=rss)
+3. [Germany's far-right AfD bids for first taste of power in eastern vote](https://www.bbc.co.uk/news/articles/cvgypkzgy4wo?at_medium=RSS&at_campaign=rss)
+4. [Mistrial declared in Lindsay Clancy murder case, after jury deadlocks](https://www.bbc.co.uk/news/articles/cpwlrj2je1po?at_medium=RSS&at_campaign=rss)
+5. [The U.N. backs a new world map showing Africa in its true relative size](https://www.npr.org/2026/09/04/nx-s1-5958611/africa-world-map-un-vote)
+6. [Alejandro Betancourt, Trump’s Partner in Venezuelan Oil Deal, Has Faced Investigations](https://www.nytimes.com/2026/09/04/world/americas/venezuela-oil-trump-alejandro-betancourt.html)
+7. [Israel Says It Is Cementing Its Foothold in Southern Lebanon](https://www.nytimes.com/2026/09/04/world/middleeast/israel-captures-ridge-occupation-katz.html)
+8. [Trump's peace envoys to visit Moscow and Kyiv over weekend](https://www.bbc.co.uk/news/articles/c23x0z48x0no?at_medium=RSS&at_campaign=rss)
+9. [Russian Drone Strikes Office of Ukraine’s Intelligence Chief](https://www.nytimes.com/2026/09/04/world/europe/russia-drone-attack-kyiv-security-service.html)
+10. [Europe targeted by spiralling campaign of sabotage - and Russia is the chief suspect](https://www.bbc.co.uk/news/articles/c5y4g6meekro?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
