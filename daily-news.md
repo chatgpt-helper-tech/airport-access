@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月6日 13:36:49
+更新时间：2026年9月7日 03:32:39
 
-1. [US envoys meet Zelensky in Ukraine after talks with Putin in Russia](https://www.bbc.co.uk/news/articles/c6248nvqy8po?at_medium=RSS&at_campaign=rss)
-2. [Trump Envoys Make First Visit to Kyiv](https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html)
-3. [China’s New Graduates, Facing a Dire Job Market, Must Also Contend With A.I.](https://www.nytimes.com/2026/09/06/world/asia/chinas-new-graduates-ai-challenges.html)
-4. [Here Is Where Ukraine Peace Talks Stand, as a New Round Approaches](https://www.nytimes.com/2026/09/05/world/europe/ukraine-russia-talks-wtk.html)
-5. [A Bad Year for Bees Gets Worse as Trump’s Tariffs Hit Canada’s Honey Belt](https://www.nytimes.com/2026/09/06/world/canada/a-bad-year-for-bees-gets-worse-as-trumps-tariffs-hit-canadas-honey-belt.html)
-6. [Volcano eruption leaves 150,000 passengers stranded in Indonesia](https://www.bbc.co.uk/news/articles/cvgy5k4n07ko?at_medium=RSS&at_campaign=rss)
-7. [U.S. envoys Witkoff and Kushner land for talks in Kyiv after meeting Putin in Moscow](https://www.npr.org/2026/09/06/nx-s1-5959657/us-envoys-witkoff-kushner-talks-in-kyiv-putin-moscow)
-8. [In Ukraine, Fraud and Waste Are Rewarded With More Weapons Contracts](https://www.nytimes.com/2026/09/06/world/europe/ukraine-war-weapons-fraud-corruption.html)
-9. [TV presenter among 12 sentenced to death in Egypt drugs case](https://www.bbc.co.uk/news/articles/c5y7gk9knnlo?at_medium=RSS&at_campaign=rss)
-10. [Elections in Germany Could Produce First Far-Right State Government Since Nazi Era: What to Know](https://www.nytimes.com/2026/09/06/world/europe/germany-election-afd-saxony-anhalt.html)
+1. [Five dead after Amazon cargo plane crashes at Miami airport](https://www.bbc.co.uk/news/articles/c0e3p1j7n3ro?at_medium=RSS&at_campaign=rss)
+2. [Austria's Islamic headscarf ban in force as under-14s go back to school](https://www.bbc.co.uk/news/articles/cwyz74xn8q8o?at_medium=RSS&at_campaign=rss)
+3. [Live Updates: Germany’s Far Right Tops Key State Race, but Falls Short of Power](https://www.nytimes.com/live/2026/09/06/world/germany-election)
+4. [Germany's far-right AfD set for big win in eastern state, just short of majority](https://www.bbc.co.uk/news/articles/cy4zejgz3z9o?at_medium=RSS&at_campaign=rss)
+5. [U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin](https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html)
+6. [U.S. envoys visit Kyiv for first time after meeting Putin in Moscow](https://www.npr.org/2026/09/06/nx-s1-5959728/u-s-envoys-visit-kyiv-for-first-time-after-meeting-putin-in-moscow)
+7. [Shipping companies are putting sails back on cargo ships](https://www.npr.org/2026/09/06/nx-s1-5955419/shipping-companies-are-putting-sails-back-on-cargo-ships)
+8. [What Russia and China learned from America after 9/11](https://www.npr.org/2026/09/06/nx-s1-5938065/what-russia-and-china-learned-from-america-after-9-11)
+9. [Peace talks rich in symbolism but fundamental differences between Russia and Ukraine remain](https://www.bbc.co.uk/news/articles/c980j5m8mpro?at_medium=RSS&at_campaign=rss)
+10. [Zelensky says he expects war to continue into winter after talks with US envoys](https://www.bbc.co.uk/news/articles/c6248nvqy8po?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
