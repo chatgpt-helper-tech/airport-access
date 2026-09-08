@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月8日 06:38:06
+更新时间：2026年9月8日 09:35:05
 
-1. [What to know about Canada's escalating trade war with the U.S.](https://www.npr.org/2026/09/08/nx-s1-5960990/canada-escalating-trade-war-us)
-2. [King Charles III clarifies status of Prince Harry and his wife, Meghan](https://www.npr.org/2026/09/08/g-s1-142289/king-charles-prince-harry)
-3. [Russia and North Korea open the first road across their shared border](https://www.npr.org/2026/09/08/g-s1-142285/russia-north-korea-border)
-4. [Philippines Lawmaker, Cousin of Marcos, Charged With Taking Kickbacks](https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickbacks.html)
-5. [Canada braces for prolonged trade war as counter-tariffs on US take effect](https://www.bbc.co.uk/news/articles/c8jdev0422jo?at_medium=RSS&at_campaign=rss)
-6. [Canada’s Retaliatory Tariffs Set to Take Effect as Trump Threatens to Escalate](https://www.nytimes.com/2026/09/07/world/canada/tariffs-trade-war-carney-trump.html)
-7. [North Korea and Russia open first road bridge linking both countries](https://www.bbc.co.uk/news/articles/cj9xvg1kz0mo?at_medium=RSS&at_campaign=rss)
-8. [Trial over alleged murders of Australian surfer brothers starts in Mexico](https://www.bbc.co.uk/news/articles/crernpv433vo?at_medium=RSS&at_campaign=rss)
-9. [Ukraine's chief prosecutor resigns over call centre corruption scandal](https://www.bbc.co.uk/news/articles/c780nlgyd79o?at_medium=RSS&at_campaign=rss)
-10. [Eiffel Tower shut by staff protest after female workers moved for religious visit](https://www.bbc.co.uk/news/articles/clyenxp540vo?at_medium=RSS&at_campaign=rss)
+1. [Five killed in Miami plane crash were in two vehicles on ground, investigators say](https://www.bbc.co.uk/news/articles/ce8e32n8epeo?at_medium=RSS&at_campaign=rss)
+2. [Highest paid world leader to get salary increase of $1 million](https://www.bbc.co.uk/news/articles/c5y5kn143d1o?at_medium=RSS&at_campaign=rss)
+3. [Saudi Arabia Vows Retaliation After Houthi Attacks Injure Dozens](https://www.nytimes.com/2026/09/08/world/middleeast/saudi-arabia-yemen-energy-attack.html)
+4. [Houthi attacks on Saudi Arabia ignite fires at oil facilities and wound 73 people](https://www.npr.org/2026/09/08/g-s1-142296/houthi-attacks-saudi-arabia)
+5. [Russia Bombards Kyiv Soon After Witkoff, Kushner Leave](https://www.nytimes.com/2026/09/08/world/europe/russia-ukraine-kyiv-attacks.html)
+6. [Rubio to Push Colombia’s New Leader to Tackle Cocaine Trade](https://www.nytimes.com/2026/09/08/world/americas/rubio-colombia-cocaine.html)
+7. [Chinese Ship Takes Arctic Shortcut: Smart Business? Or a Political Flex?](https://www.nytimes.com/2026/09/08/world/europe/china-arctic-shipping-trade-route.html)
+8. [World Food Programme's Carl Skau discusses Yemen's food insecurity crisis](https://www.npr.org/2026/09/08/nx-s1-5951962/world-food-programmes-carl-skau-discusses-yemens-food-insecurity-crisis)
+9. [Nepal cracks down on online abuse of flood survivors](https://www.bbc.co.uk/news/articles/cq5x3n38308o?at_medium=RSS&at_campaign=rss)
+10. [What to know about Canada's escalating trade war with the U.S.](https://www.npr.org/2026/09/08/nx-s1-5960990/canada-escalating-trade-war-us)
 <!-- daily-check end -->
