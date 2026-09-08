@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月7日 08:33:38
+更新时间：2026年9月8日 05:30:52
 
-1. [Israeli strikes in southern Lebanese village kill 11, state media say](https://www.bbc.co.uk/news/articles/c5yl96vz0edo?at_medium=RSS&at_campaign=rss)
-2. [Five dead after Amazon cargo plane crashes at Miami airport](https://www.bbc.co.uk/news/articles/c0e3p1j7n3ro?at_medium=RSS&at_campaign=rss)
-3. [Germany's far-right AfD hails big victory in east, but falls short of majority](https://www.bbc.co.uk/news/articles/cy4zejgz3z9o?at_medium=RSS&at_campaign=rss)
-4. [Indonesia volcano eruption leaves 270,000 stranded as airports extend closure](https://www.bbc.co.uk/news/articles/czezydp4l97o?at_medium=RSS&at_campaign=rss)
-5. [New videos of man in 9/11 lawsuit reveal extremist links](https://www.bbc.co.uk/news/articles/cr4vn1e207go?at_medium=RSS&at_campaign=rss)
-6. [AfD Victory in Saxony-Anhalt Sends a Signal to Europe](https://www.nytimes.com/2026/09/06/world/europe/afd-germany-europe-far-right-saxony-anhalt.html)
-7. [China to pump $54bn into state banks and insurers to boost economy](https://www.bbc.co.uk/news/articles/cx2z37qj4wno?at_medium=RSS&at_campaign=rss)
-8. [Austria's Islamic headscarf ban in force as under-14s go back to school](https://www.bbc.co.uk/news/articles/cwyz74xn8q8o?at_medium=RSS&at_campaign=rss)
-9. [Germany’s Far Right Just Misses Majority in Crucial State Election](https://www.nytimes.com/2026/09/06/world/europe/germany-afd-election-saxony-anhalt.html)
-10. [U.S. Envoys Witkoff and Kushner Arrive in Kyiv After Talks With Putin](https://www.nytimes.com/2026/09/06/world/europe/ukraine-zelensky-witkoff-kushner-russia-putin.html)
+1. [Philippines Lawmaker, Cousin of Marcos, Charged With Taking Kickbacks](https://www.nytimes.com/2026/09/07/world/asia/philippines-romualdez-arrest-kickbacks.html)
+2. [Canada’s Retaliatory Tariffs Set to Take Effect as Trump Threatens to Escalate](https://www.nytimes.com/2026/09/07/world/canada/tariffs-trade-war-carney-trump.html)
+3. [North Korea and Russia open first road bridge linking both countries](https://www.bbc.co.uk/news/articles/cj9xvg1kz0mo?at_medium=RSS&at_campaign=rss)
+4. [UK government expected to announce restrictions on trade with West Bank settlements](https://www.bbc.co.uk/news/articles/c4grdjnle22o?at_medium=RSS&at_campaign=rss)
+5. [Ukraine's chief prosecutor resigns over call centre corruption scandal](https://www.bbc.co.uk/news/articles/c780nlgyd79o?at_medium=RSS&at_campaign=rss)
+6. [Trump threatens to stop sale of Canadian Bombardier jets in US](https://www.bbc.co.uk/news/articles/c4gj8xx5010o?at_medium=RSS&at_campaign=rss)
+7. [Eiffel Tower shut by staff protest after female workers moved for religious visit](https://www.bbc.co.uk/news/articles/clyenxp540vo?at_medium=RSS&at_campaign=rss)
+8. [Flight recorders recovered from Amazon cargo plane crash](https://www.bbc.co.uk/news/articles/ce8e32n8epeo?at_medium=RSS&at_campaign=rss)
+9. [In Peru, the Trump Administration Sees the Limits of Its Anti-China Push](https://www.nytimes.com/2026/09/07/world/americas/peru-trump-china-economy.html)
+10. [The UN passed resolution ahead of General Assembly calling for end to child marriage](https://www.npr.org/2026/09/07/nx-s1-5954226/the-un-passed-resolution-ahead-of-general-assembly-calling-for-end-to-child-marriage)
 <!-- daily-check end -->
