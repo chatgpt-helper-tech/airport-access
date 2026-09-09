@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月9日 05:38:58
+更新时间：2026年9月9日 10:32:58
 
-1. [U.S. military says it destroyed 5 Iranian oil tankers after attacks on Navy warship](https://www.npr.org/2026/09/09/nx-s1-5962641/us-destroy-iranian-oil-tankers)
-2. [Hong Kong's first leader after British handover dies](https://www.bbc.co.uk/news/articles/cn457lq938jo?at_medium=RSS&at_campaign=rss)
-3. [US slaps import ban on Canadian alcohol, motorbikes and other goods](https://www.bbc.co.uk/news/articles/c99dm1000p7o?at_medium=RSS&at_campaign=rss)
-4. [Hungary Expels 10 Russian Diplomats, Signaling a Shift](https://www.nytimes.com/2026/09/08/world/europe/hungary-russia-diplomats-expulsion.html)
-5. [Carney Says Retaliation Against U.S. Tariffs Was Unavoidable](https://www.nytimes.com/2026/09/08/world/canada/carney-tariffs-trade.html)
-6. [UK announces sanctions on West Bank settlements prompting furious Israeli response](https://www.bbc.co.uk/news/articles/c4g7zen0vveo?at_medium=RSS&at_campaign=rss)
-7. [Meta continues to run ads promoting child sexual abuse material in India - report](https://www.bbc.co.uk/news/articles/cqxv2vwjjq3o?at_medium=RSS&at_campaign=rss)
-8. ['Constantly on my mind' - 9/11 agony endures for bereaved, 25 years on](https://www.bbc.co.uk/news/articles/clyrjw1yj75o?at_medium=RSS&at_campaign=rss)
-9. [Israeli Allies Ban Trade With Settlements as U.K. Cites ‘Ethnic Cleansing’](https://www.nytimes.com/2026/09/08/world/europe/uk-sanctions-israel-west-bank-settlements.html)
-10. [Paul Adams: British-Israeli relations at lowest ebb in decades](https://www.bbc.co.uk/news/articles/c5ydlex9yn3o?at_medium=RSS&at_campaign=rss)
+1. [US to ban imports of some Canadian alcohol, dairy goods and motorbikes](https://www.bbc.co.uk/news/articles/c99dm1000p7o?at_medium=RSS&at_campaign=rss)
+2. [Oil hits $100 a barrel for first time since July after US and Houthi strikes](https://www.bbc.co.uk/news/articles/cyvznqypz0yo?at_medium=RSS&at_campaign=rss)
+3. [Europe Unites to Pressure Israel, Breaking With U.S.](https://www.nytimes.com/2026/09/09/world/europe/britain-france-israel-settlements-trade.html)
+4. [Iran Signals Readiness to Escalate War With U.S. Amid Rising Economic Pressure](https://www.nytimes.com/2026/09/09/world/middleeast/iran-war-us-aggression-hormuz.html)
+5. [This Tiny Anti-Establishment Party May Put Germany’s Far Right in Power](https://www.nytimes.com/2026/09/09/world/europe/afd-bsw-sahra-wagenknecht.html)
+6. [Israel’s Election Campaign Is Heating Up. Here’s Who’s Running.](https://www.nytimes.com/2026/09/09/world/middleeast/israels-election-campaign-is-heating-up-heres-whos-running.html)
+7. [Ukraine’s Unexpected $27 Billion Budget Gap Rattles Europe](https://www.nytimes.com/2026/09/09/world/europe/ukraine-says-it-needs-27-billion-more-europe-wants-to-know-why.html)
+8. [How a Driver’s Sudden Death Triggered Ebola Panic in Congo](https://www.nytimes.com/2026/09/09/world/africa/ebola-congo-truck-driver.html)
+9. [Citing the 'Deep State,' Trump overhauls the intelligence community](https://www.npr.org/2026/09/09/nx-s1-5955756/deep-state-trump-9-11-national-intelligence)
+10. [Iceland summons U.S. ambassador after Trump posts countries draped with American flag](https://www.npr.org/2026/09/09/nx-s1-5961412/iceland-summons-u-s-ambassador-after-trump-posts-countries-draped-with-american-flag)
 <!-- daily-check end -->
