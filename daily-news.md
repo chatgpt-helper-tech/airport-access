@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月10日 13:37:03
+更新时间：2026年9月11日 01:36:38
 
-1. [Trump says every adult American will get $5,000 if Republicans win midterms](https://www.bbc.co.uk/news/articles/c62kzr1jg0jo?at_medium=RSS&at_campaign=rss)
-2. [Royal family rift after popular TV news presenter chosen to succeed Ugandan king](https://www.bbc.co.uk/news/articles/c8jdpj4ydm2o?at_medium=RSS&at_campaign=rss)
-3. [Twenty-five dead after fire on cargo ship in eastern China](https://www.bbc.co.uk/news/articles/cj4jyv7l92eo?at_medium=RSS&at_campaign=rss)
-4. [The ‘Forever War’ in Afghanistan: 25 Years in Pictures](https://www.nytimes.com/2026/09/10/world/asia/afghanistan-war-photojournalism.html)
-5. [Iran war won't end until after crucial November elections, says Trump](https://www.bbc.co.uk/news/articles/c5ydld0gykpo?at_medium=RSS&at_campaign=rss)
-6. [Yemen’s Houthis Seize Strategic Red Sea Port, Officials Say](https://www.nytimes.com/2026/09/10/world/middleeast/yemens-houthis-seize-strategic-red-sea-port-officials-say.html)
-7. [With Messaging That Mirrors Putin’s, Germany’s Far-Right Party Gains Ground](https://www.nytimes.com/2026/09/10/world/europe/germany-russia-afd-putin.html)
-8. [Apple's new boss starts with big gamble on £1,999 first folding iPhone](https://www.bbc.co.uk/news/articles/clyjd1jnd03o?at_medium=RSS&at_campaign=rss)
-9. [Why Yemen Is Back on the Brink of War](https://www.nytimes.com/2026/09/10/world/middleeast/yemen-houthis-saudis-war.html)
-10. [Carney, at a Cabinet Retreat, Considers Further Trade Strikes Against the U.S.](https://www.nytimes.com/2026/09/10/world/canada/carney-trump-canada-us-trade-war-tariffs.html)
+1. [Coach crash kills several people in Swiss Alps](https://www.bbc.co.uk/news/articles/cx2z70xr0y3o?at_medium=RSS&at_campaign=rss)
+2. [Ancient Tombs, Untouched by Looters, Are Found Under Peru’s Sands](https://www.nytimes.com/2026/09/10/world/americas/peru-tombs-chimu-archaeology.html)
+3. [Man jailed after threatening to kill son's teacher in French village](https://www.bbc.co.uk/news/articles/c62jln7n2vvo?at_medium=RSS&at_campaign=rss)
+4. [After a Difficult Loss, Nigeria Has Become a Source of Pain for Chimamanda Ngozi Adichie](https://www.nytimes.com/2026/09/10/world/africa/chimamanda-ngozi-adichie-nigeria-son-death.html)
+5. [Houthis Seize Strategic Red Sea Port, a Major Victory for Iranian Ally](https://www.nytimes.com/2026/09/10/world/middleeast/yemens-houthis-seize-strategic-red-sea-port-officials-say.html)
+6. [More than 20 children killed in DR Congo school fire](https://www.bbc.co.uk/news/articles/cgjq15j7318o?at_medium=RSS&at_campaign=rss)
+7. [Moscow Claims Ukraine Planned to Start a War Between Russia and the U.K.](https://www.nytimes.com/2026/09/10/world/europe/russia-ukraine-uk-embassy.html)
+8. [UK Sanctions Against Israeli Settlers Divide British Rabbis](https://www.nytimes.com/2026/09/10/world/europe/britain-israel-jews-sanctions-settlers.html)
+9. [Yemen's Houthis reportedly seize strategic Red Sea port of Mokha](https://www.bbc.co.uk/news/articles/c4g7vr0lngwo?at_medium=RSS&at_campaign=rss)
+10. [Can Trump really pay $5,000 to every American adult?](https://www.bbc.co.uk/news/articles/c8r6vj7r8rko?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
