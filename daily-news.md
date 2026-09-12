@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月12日 02:36:57
+更新时间：2026年9月12日 08:37:05
 
-1. [Arrest made over the death of black woman found hanged from tree in Mississippi](https://www.bbc.co.uk/news/articles/cqjkejq5750o?at_medium=RSS&at_campaign=rss)
-2. [Why Emerging Powers Keep Joining BRICS, Even When They Disagree](https://www.nytimes.com/2026/09/11/world/asia/brics-meeting-summit-delhi.html)
-3. [Houthis Seize a Key Red Sea Island, Threatening Another Global Oil Route](https://www.nytimes.com/2026/09/11/world/middleeast/yemen-houthis-bab-al-mandab.html)
-4. [Houthis claim major advance in Yemen and tighten grip on Red Sea shipping lane](https://www.bbc.co.uk/news/articles/c23x72yx2rvo?at_medium=RSS&at_campaign=rss)
-5. [The other side of 9/11: Afghans reckon with America's long shadow](https://www.npr.org/2026/09/11/nx-s1-5949270/the-other-side-of-9-11-afghans-reckon-with-americas-long-shadow)
-6. [Passenger train derails in France leaving at least 44 injured](https://www.bbc.co.uk/news/articles/c8d37dm8d8mo?at_medium=RSS&at_campaign=rss)
-7. [Tragic death of woman who testified against father in notorious mafia murder of mother](https://www.bbc.co.uk/news/articles/c39mr81j2j1o?at_medium=RSS&at_campaign=rss)
-8. [Emma Bonino, Italian Campaigner for Civil Rights, Dies at 78](https://www.nytimes.com/2026/09/11/world/europe/emma-bonino-italian-campaigner-dies.html)
-9. [Amid war and sanctions, many Iranians are losing their jobs and struggling to get by](https://www.npr.org/2026/09/11/g-s1-142935/iran-us-war-jobs-economy)
-10. [As Russia Again Draws Near, a Frontline City Fears Obliteration This Time](https://www.nytimes.com/2026/09/11/world/europe/ukraine-russia-izium-donetsk.html)
+1. [Trump to meet Irish leader Micheál Martin during visit](https://www.bbc.co.uk/news/articles/cy0zvx15rywo?at_medium=RSS&at_campaign=rss)
+2. [Grammy-winning US rapper Lil Durk acquitted in murder-for-hire trial](https://www.bbc.co.uk/news/articles/c1kx0jje18wo?at_medium=RSS&at_campaign=rss)
+3. [BRICS leaders meet in India as wars and US tensions test the bloc](https://www.npr.org/2026/09/12/g-s1-143054/brics-leaders-meet-in-india)
+4. [Inside an Ancient Lebanese City Engulfed by War](https://www.nytimes.com/2026/09/11/world/middleeast/tyre-engulfed-war-lebanon.html)
+5. [As Oil Prices Rise, BRICS Leaders Have What U.S. Doesn’t: Iran at the Table](https://www.nytimes.com/2026/09/12/world/asia/brics-summit-china-india-russia-iran.html)
+6. [Yemen's Houthis capture a Red Sea island in threat to shipping](https://www.npr.org/2026/09/12/g-s1-143044/yemens-houthis-capture-red-sea-island)
+7. [Saudi Arabia shuts key oil pipeline after drone attack launched from Iraq](https://www.bbc.co.uk/news/articles/c62m933465eo?at_medium=RSS&at_campaign=rss)
+8. [In Doonbeg, Trump’s Irish Open Visit Prompts Protests and Praise](https://www.nytimes.com/2026/09/12/world/europe/trump-irish-open-ireland-doonbeg.html)
+9. [The Doctor Pressuring African Leaders to Own the Ebola Response](https://www.nytimes.com/2026/09/12/world/africa/jean-kaseya-africa-cdc.html)
+10. [Death toll from Philippines ferry fire climbs to 35, with dozens still missing](https://www.bbc.co.uk/news/articles/cwyz755yeg9o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
