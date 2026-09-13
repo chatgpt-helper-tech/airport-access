@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月12日 11:32:08
+更新时间：2026年9月13日 03:33:23
 
-1. [A united Ireland would be 'fantastic' says Trump during Irish visit](https://www.bbc.co.uk/news/articles/cy0zvx15rywo?at_medium=RSS&at_campaign=rss)
-2. [Saudi Arabia shuts key oil pipeline after drone attack launched from Iraq](https://www.bbc.co.uk/news/articles/c62m933465eo?at_medium=RSS&at_campaign=rss)
-3. [Visa Issue Threatens U.S.-Brazil Cooperation on Crime](https://www.nytimes.com/2026/09/12/world/americas/us-brazil-crime-police-visas-ice.html)
-4. [The Doctor Pressuring African Leaders to Own the Ebola Response](https://www.nytimes.com/2026/09/12/world/africa/jean-kaseya-africa-cdc.html)
-5. [In Doonbeg, Trump’s Irish Open Visit Prompts Protests and Praise](https://www.nytimes.com/2026/09/12/world/europe/trump-irish-open-ireland-doonbeg.html)
-6. [Why Mokha, Historic Port That Shaped the Coffee Trade, Is a Prize in Yemen’s War](https://www.nytimes.com/2026/09/12/world/middleeast/mokha-yemen-houthis-mocha-coffee.html)
-7. [The secret quest to preserve Palestinian writer Raja Shehadeh's diaries](https://www.npr.org/2026/09/12/g-s1-142760/palestinian-writer-archive-scotland-israel-shehadeh)
-8. [Tyla and Other Stars Cancel Concerts Amid Anti-Immigrant Backlash](https://www.nytimes.com/2026/09/12/world/africa/tyla-south-africa-concert-nigeria-immigration.html)
-9. [‘We Left in the Clothes We Were Wearing’: Yemenis Flee New Fighting](https://www.nytimes.com/2026/09/12/world/middleeast/yemen-iran-war-houthis.html)
-10. [BRICS leaders meet in India as wars and US tensions test the bloc](https://www.npr.org/2026/09/12/g-s1-143054/brics-leaders-meet-in-india)
+1. [Visa Issue Threatens U.S.-Brazil Cooperation on Crime](https://www.nytimes.com/2026/09/12/world/americas/us-brazil-crime-police-visas-ice.html)
+2. [They lost their jobs after posting about Charlie Kirk, but some have no regrets](https://www.bbc.co.uk/news/articles/cj06jgl9qzlo?at_medium=RSS&at_campaign=rss)
+3. [Trump Says Irish Unification Would Be ‘Fantastic,’ Breaking With Precedent](https://www.nytimes.com/2026/09/12/world/europe/trump-ireland-unification-remarks.html)
+4. [‘We Left in the Clothes We Were Wearing’: Yemenis Flee New Fighting](https://www.nytimes.com/2026/09/12/world/middleeast/yemen-iran-war-houthis.html)
+5. [Trump's comments on a united Ireland may have targeted audience across the Atlantic](https://www.bbc.co.uk/news/articles/cwyzppd1d5lo?at_medium=RSS&at_campaign=rss)
+6. [Anthropic boss Dario Amodei calls for AI development to slow down](https://www.bbc.co.uk/news/articles/c14dpgm0rg4o?at_medium=RSS&at_campaign=rss)
+7. [Fire at nursing home in Chile kills 16 residents](https://www.bbc.co.uk/news/articles/cy4zpp20w77o?at_medium=RSS&at_campaign=rss)
+8. [Death Toll From Ferry Fire in the Philippines Rises to 76](https://www.nytimes.com/2026/09/12/world/asia/philippines-ferry-fire-death-toll.html)
+9. [Iran Finds Escalation Is Fruitful Path to Leverage in War With U.S.](https://www.nytimes.com/2026/09/12/world/middleeast/iran-escalation-leverage-houthis-strait.html)
+10. [Saudi Arabia’s Oil ‘Lifeline’ Was Attacked. Here’s What to Know.](https://www.nytimes.com/2026/09/12/world/middleeast/saudi-arabia-oil-pipeline-attack.html)
 <!-- daily-check end -->
