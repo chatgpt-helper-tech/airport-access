@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月16日 10:38:54
+更新时间：2026年9月16日 13:38:50
 
-1. [EU chief opens door for Canada to become 'associate member'](https://www.bbc.co.uk/news/articles/cjwyzrr9d3dko?at_medium=RSS&at_campaign=rss)
-2. [Trump Bars Some South Africans Over Claims of Anti-White Discrimination](https://www.nytimes.com/2026/09/16/world/africa/trump-visas-south-africa.html)
-3. [OpenAI boss says world 'right to be afraid' but should trust AI firms](https://www.bbc.co.uk/news/articles/cqx2zpj4y525o?at_medium=RSS&at_campaign=rss)
-4. [Kosovo's ex-President Thaci convicted of war crimes, sentenced to 25 years in prison](https://www.npr.org/2026/09/16/g-s1-143560/kosovo-former-president-war-crimes)
-5. [E.U. Offers to Make Canada ‘Associate Member’ as U.S. Ties Weaken for Both](https://www.nytimes.com/2026/09/16/world/europe/eu-canada-associate-member.html)
-6. [Journalist and pilot among three killed after news helicopter crashes in LA](https://www.bbc.co.uk/news/articles/cw4gq0j5jg10o?at_medium=RSS&at_campaign=rss)
-7. [At least 20 killed after war-damaged Gaza building collapses](https://www.bbc.co.uk/news/articles/cvp8d00j9gg5o?at_medium=RSS&at_campaign=rss)
-8. [All support acts on Ed Sheeran's US tour quit after Macklemore dropped](https://www.bbc.co.uk/news/articles/c3vgyn49y4l7o?at_medium=RSS&at_campaign=rss)
-9. [Migrants Fear Discrimination After Far Right Surge in German State](https://www.nytimes.com/2026/09/16/world/europe/migrants-germany-far-right-afd.html)
-10. [Saudi Arabia calls an attempted Mecca attack a 'red line' as Houthis deny they did it](https://www.npr.org/2026/09/16/g-s1-143554/saudi-arabia-attempted-mecca-attack)
+1. [Russia seizes Ukrainian POWs, then it demands favors from their relatives](https://www.npr.org/2026/09/16/nx-s1-5904423/russia-seizes-ukrainian-pows-then-it-demands-favors-from-their-relatives)
+2. [Eight children among 21 killed after war-damaged Gaza building collapses, rescuers say](https://www.bbc.co.uk/news/articles/cvp8d00j9gg5o?at_medium=RSS&at_campaign=rss)
+3. [A Colorful Undercover Recording Spurs Fresh Outrage Over Graft in Ukraine](https://www.nytimes.com/2026/09/16/world/europe/ukraine-corruption.html)
+4. [Kosovo’s Former Leader Is Sentenced to 25 Years in War Crimes Case](https://www.nytimes.com/2026/09/16/world/europe/kosovo-thaci-war-crimes-hague-serbia.html)
+5. [Turkey Begins Broad Crackdown on L.G.B.T.Q. Community](https://www.nytimes.com/2026/09/16/world/middleeast/lgbtq-arrests-erdogan-turkey.html)
+6. [How Sept. 11 Paved the Way to Mideast Power for Iran](https://www.nytimes.com/2026/09/16/world/middleeast/sept-11-iran-islamic-state-iraq.html)
+7. [EU chief backs plan for Canada to become 'associate member'](https://www.bbc.co.uk/news/articles/cjwyzrr9d3dko?at_medium=RSS&at_campaign=rss)
+8. [In a Signal to Trump, Beijing Hosts Iranian Diplomat Ahead of U.S.-China Summit](https://www.nytimes.com/2026/09/16/world/asia/iran-war-china-trump-summit.html)
+9. [Houthis Claim They Downed Saudi Fighter Jet After Being Accused of Targeting Mecca](https://www.nytimes.com/2026/09/16/world/middleeast/saudi-arabia-houthi-fighter-jet-mecca-drone.html)
+10. [At Least 16 Dead in Gaza After Building Collapse, Officials Say](https://www.nytimes.com/2026/09/16/world/middleeast/gaza-building-collapse.html)
 <!-- daily-check end -->
