@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月18日 01:32:32
+更新时间：2026年9月18日 11:35:42
 
-1. [Yemen War Intensifies as Houthi Militia Advances on Marib](https://www.nytimes.com/2026/09/17/world/middleeast/yemen-houthis-marib.html)
-2. [US to allow Iran delegation to attend UN meetings in New York as war passes half-year mark](https://www.bbc.co.uk/news/articles/c6n8m72r13ngo?at_medium=RSS&at_campaign=rss)
-3. [UN experts say grounds to believe US committed war crimes in Iran strikes](https://www.bbc.co.uk/news/articles/cm9w4n5nverdo?at_medium=RSS&at_campaign=rss)
-4. [Behind the overture from the European Union to Canada](https://www.npr.org/2026/09/17/nx-s1-5973029/behind-the-overture-from-the-european-union-to-canada)
-5. [U.S. Strike on Iranian School May Have Been War Crime, U.N. Report Says](https://www.nytimes.com/2026/09/17/world/asia/us-iran-school-strike-report.html)
-6. [Russia and China Veto U.S. Bid to Renew U.N. Monitoring of Iran Nuclear Program](https://www.nytimes.com/2026/09/17/world/middleeast/un-iran-resolution-russia-china-veto.html)
-7. [Can an AI chatbot save lives by answering texts about pregnancy?](https://www.npr.org/2026/09/17/nx-s1-5962840/artificial-intelligence-ai-chatbot-pregnancy-maternal-health)
-8. [Major Iranian Airline Suspends Several Flights Abroad, Adding to Isolation](https://www.nytimes.com/2026/09/17/world/middleeast/iranian-airlines-suspend-flights-us-sanctions.html)
-9. [Wife of US scholar jailed in China asks Trump to raise arrest at Xi meeting](https://www.bbc.co.uk/news/articles/c9j3d2rr6g24o?at_medium=RSS&at_campaign=rss)
-10. [Hyrox athlete apologises for continuing race after soiling herself](https://www.bbc.co.uk/news/articles/ck0e35qyqlx0o?at_medium=RSS&at_campaign=rss)
+1. [Judge says Trump can't demolish Kennedy Center. And, lawsuits target voter intimidation](https://www.npr.org/2026/09/18/g-s1-143913/up-first-newsletter-kennedy-center-trump-voter-intimidation-lawsuit-poland-russia-ukraine)
+2. [Three dead and eight injured in Philippines school shooting](https://www.bbc.co.uk/news/articles/c6x2z4dlzyr0o?at_medium=RSS&at_campaign=rss)
+3. [Ms. Rachel has entered her album era, and she is so happy about it](https://www.npr.org/2026/09/18/nx-s1-5938847/ms-rachel-mr-aron-new-album-im-so-happy)
+4. [At least 16 killed in attack on mosque in Pakistan](https://www.bbc.co.uk/news/articles/ckn9wenz8wjwo?at_medium=RSS&at_campaign=rss)
+5. [South Africa 'feels like a prison' for women amid spate of femicides](https://www.npr.org/2026/09/18/nx-s1-5973822/south-africa-feels-like-a-prison-for-women-amid-spate-of-femicides)
+6. [Dozens of suspected illegal miners die in Nigerian custody](https://www.bbc.co.uk/news/articles/cw980qp2n3p4o?at_medium=RSS&at_campaign=rss)
+7. [Why Autocrats Care What People Think](https://www.nytimes.com/2026/09/18/world/europe/putin-russia-election-ideas.html)
+8. [Saint Pierre and Miquelon, France, In the Spotlight as Macron and Carney Visit](https://www.nytimes.com/2026/09/18/world/canada/saint-pierre-miquelon-france-canada-macron-carney.html)
+9. [Convicted of Theft, an Ex-Prime Minister Is Set to Swap Prison for Mansion](https://www.nytimes.com/2026/09/18/world/asia/malaysia-najib-razak-1mdb-pardon.html)
+10. [Spain’s Preppy Conservatives Are Having a Moment](https://www.nytimes.com/2026/09/18/world/europe/spain-conservative-culture-cayetano.html)
 <!-- daily-check end -->
