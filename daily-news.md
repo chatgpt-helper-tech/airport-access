@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月17日 13:31:39
+更新时间：2026年9月18日 01:32:32
 
-1. [Klopp wants to 'reclaim' flag amid German elections](https://www.bbc.co.uk/sport/football/articles/cmwyzk6xkrd0o?at_medium=RSS&at_campaign=rss)
-2. [Ninth woman's body found as South African police investigate string of deaths](https://www.bbc.co.uk/news/articles/cqx2zgk8k8xvo?at_medium=RSS&at_campaign=rss)
-3. [Carney Calls for E.U.-Canada Pact Amid ‘Ferocious Storm’](https://www.nytimes.com/2026/09/17/world/europe/canada-carney-eu.html)
-4. [Swedish PM Kristersson resigns after election loss](https://www.bbc.co.uk/news/articles/cxr50l3d762po?at_medium=RSS&at_campaign=rss)
-5. [U.N.-backed experts cite possible U.S. war crimes in Iran, including a school attack](https://www.npr.org/2026/09/17/nx-s1-5972934/us-iran-war-un-report-alleged-war-crimes)
-6. [A New Play in Budapest Signals a Cultural Reawakening for Hungary](https://www.nytimes.com/2026/09/17/world/europe/play-budapest-culture-hungary.html)
-7. [Aztec document goes on display in Mexico after 186 years abroad](https://www.bbc.co.uk/news/articles/ck980qyy6d2zo?at_medium=RSS&at_campaign=rss)
-8. [The Fed raises interest rates. And, EU proposes Canada become an 'associate member'](https://www.npr.org/2026/09/17/g-s1-143783/up-first-newsletter-federal-reserve-interest-rates-gas-prices-war-canada-european-union)
-9. [EU announces plan to restrict social media access for under-15s](https://www.bbc.co.uk/news/articles/c3j4jz8vpz1xo?at_medium=RSS&at_campaign=rss)
-10. [Pressure on global chokepoints drives Asia's increased use of Arctic Trade Routes](https://www.npr.org/2026/09/17/g-s1-143712/pressure-on-global-chokepoints-drives-asias-increased-use-of-arctic-trade-routes)
+1. [Yemen War Intensifies as Houthi Militia Advances on Marib](https://www.nytimes.com/2026/09/17/world/middleeast/yemen-houthis-marib.html)
+2. [US to allow Iran delegation to attend UN meetings in New York as war passes half-year mark](https://www.bbc.co.uk/news/articles/c6n8m72r13ngo?at_medium=RSS&at_campaign=rss)
+3. [UN experts say grounds to believe US committed war crimes in Iran strikes](https://www.bbc.co.uk/news/articles/cm9w4n5nverdo?at_medium=RSS&at_campaign=rss)
+4. [Behind the overture from the European Union to Canada](https://www.npr.org/2026/09/17/nx-s1-5973029/behind-the-overture-from-the-european-union-to-canada)
+5. [U.S. Strike on Iranian School May Have Been War Crime, U.N. Report Says](https://www.nytimes.com/2026/09/17/world/asia/us-iran-school-strike-report.html)
+6. [Russia and China Veto U.S. Bid to Renew U.N. Monitoring of Iran Nuclear Program](https://www.nytimes.com/2026/09/17/world/middleeast/un-iran-resolution-russia-china-veto.html)
+7. [Can an AI chatbot save lives by answering texts about pregnancy?](https://www.npr.org/2026/09/17/nx-s1-5962840/artificial-intelligence-ai-chatbot-pregnancy-maternal-health)
+8. [Major Iranian Airline Suspends Several Flights Abroad, Adding to Isolation](https://www.nytimes.com/2026/09/17/world/middleeast/iranian-airlines-suspend-flights-us-sanctions.html)
+9. [Wife of US scholar jailed in China asks Trump to raise arrest at Xi meeting](https://www.bbc.co.uk/news/articles/c9j3d2rr6g24o?at_medium=RSS&at_campaign=rss)
+10. [Hyrox athlete apologises for continuing race after soiling herself](https://www.bbc.co.uk/news/articles/ck0e35qyqlx0o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
