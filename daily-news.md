@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月25日 12:31:19
+更新时间：2026年9月26日 02:36:25
 
-1. [OpenAI Agents Hacked Into an Australian Government Website. Who’s Responsible?](https://www.nytimes.com/2026/09/25/world/australia/openai-hack-australia.html)
-2. [Leo XIV, Trying to Be Everyone’s Pope, Tours Secular France](https://www.nytimes.com/2026/09/25/world/europe/pope-leo-france-visit.html)
-3. [Netanyahu defends Israeli military action as delegates walk out before UN speech](https://www.bbc.co.uk/news/articles/c3y0z7kxlegdo?at_medium=RSS&at_campaign=rss)
-4. [Trump and Xi strike cordial tone at summit. And, Netanyahu gives defiant UNGA speech](https://www.npr.org/2026/09/25/g-s1-144994/up-first-newsletter-trump-xi-netanyahu-united-nations-mortgage-rates)
-5. [Jay-Z rape accuser says her allegation was false](https://www.bbc.co.uk/news/articles/cm4g53547wygo?at_medium=RSS&at_campaign=rss)
-6. [Former U.S. ambassador to China on Xi Jinping's visit to Washington](https://www.npr.org/2026/09/25/nx-s1-5979917/former-u-s-ambassador-to-china-on-xi-jinpings-visit-to-washington)
-7. [Trump and Xi exchange warm words at state dinner but little progress on key issues](https://www.bbc.co.uk/news/articles/cxq63dqp93n1o?at_medium=RSS&at_campaign=rss)
-8. [Netanyahu rages against critics, including Mamdani, at the U.N. General Assembly](https://www.npr.org/2026/09/25/nx-s1-5979852/israels-prime-minister-addresses-u-n-general-assembly)
-9. [Once Sentenced to Death, Mary Jane Veloso Receives Pardon in the Philippines](https://www.nytimes.com/2026/09/25/world/asia/mary-jane-veloso-philippines-pardon.html)
-10. [Hundreds of thousands expected in Paris for Pope's visit](https://www.bbc.co.uk/news/articles/cmq8j904212po?at_medium=RSS&at_campaign=rss)
+1. [OpenAI bots meddled with multiple US government agency sites](https://www.bbc.co.uk/news/articles/cw62jje658dlo?at_medium=RSS&at_campaign=rss)
+2. [Black woman found hanging from tree was dead before body was 'staged', police say](https://www.bbc.co.uk/news/articles/cwp933nzpp9ro?at_medium=RSS&at_campaign=rss)
+3. [Iran offers US deal to reopen Strait of Hormuz in seven days](https://www.bbc.co.uk/news/articles/cqgmrr9ekr7ko?at_medium=RSS&at_campaign=rss)
+4. [South African white genocide does not exist, new ambassador to US tells BBC](https://www.bbc.co.uk/news/articles/cm2l8qv7zppko?at_medium=RSS&at_campaign=rss)
+5. [Inside the FBI hack: Agents fearful and angry after 'dangerous' data breach](https://www.bbc.co.uk/news/articles/cm4gjjlgzdjgo?at_medium=RSS&at_campaign=rss)
+6. [Carney Seeks New Trade Partners for Canada, But Knows the Limits](https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html)
+7. [Russia targeting 'ordinary life' with attacks on Ukraine's data centres, Zelensky says](https://www.bbc.co.uk/news/articles/c84gkwgk7d06o?at_medium=RSS&at_campaign=rss)
+8. [His Novel Had a Shot at a Top Book Prize. Then Someone Ran an A.I. Test.](https://www.nytimes.com/2026/09/25/world/europe/thelyson-orelien-ai-canada-haiti-france.html)
+9. [U.N. Releases New List of Companies It Says Do Business With Israeli Settlements](https://www.nytimes.com/2026/09/25/world/middleeast/un-companies-westbank-settlements.html)
+10. [African Presidents Call for Permanent African Seats on U.N. Security Council](https://www.nytimes.com/2026/09/25/world/africa/africa-security-council-representation.html)
 <!-- daily-check end -->
