@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月27日 02:30:19
+更新时间：2026年9月27日 15:37:37
 
-1. [A Tetris-Like Maze Blocks Protests in Pakistan’s Capital](https://www.nytimes.com/2026/09/26/world/asia/pakistan-protest-islamabad-containers.html)
-2. [Carney Seeks New Trade Partners for Canada, But Knows the Limits](https://www.nytimes.com/2026/09/25/world/canada/carney-canada-european-union-china-india.html)
-3. [Evicted 87-Year-Old Woman Urges Spaniards to ‘Fight’ to Avoid Same Fate](https://www.nytimes.com/2026/09/25/world/europe/spain-eviction-housing-crisis.html)
-4. [Trump rejects Iran deal to reopen Strait of Hormuz in seven days](https://www.bbc.co.uk/news/articles/cqgmrr9ekr7ko?at_medium=RSS&at_campaign=rss)
-5. [Nor'easter brings flooding as New York and New Jersey declare emergency](https://www.bbc.co.uk/news/articles/ck1wxxzn5jndo?at_medium=RSS&at_campaign=rss)
-6. [At Summit, Xi Sought to Tilt Trump’s Stance on America’s Place in Asia](https://www.nytimes.com/2026/09/26/world/asia/summit-xi-trump-taiwan-japan.html)
-7. [Trump gave Xi Jinping a warm welcome. What did the talks accomplish?](https://www.npr.org/2026/09/26/nx-s1-5980066/trump-gave-xi-jinping-a-warm-welcome-what-did-the-talks-accomplish)
-8. [Is Congo's Ebola outbreak coming under control?](https://www.npr.org/2026/09/26/nx-s1-5976867/is-congos-ebola-outbreak-coming-under-control)
-9. [Mother of woman found hanging in tree shocked as police say body was staged](https://www.bbc.co.uk/news/articles/cq4gmmdl52rgo?at_medium=RSS&at_campaign=rss)
-10. [Trump calls Iranian plan to reopen Strait of Hormuz not 'acceptable'](https://www.npr.org/2026/09/26/nx-s1-5981990/trump-rejects-iranian-deal-strait-of-hormuz)
+1. [5 Men Arrested on Suspicion of Terrorism Offenses Near RAF Fairford, Air Base Used by U.S.](https://www.nytimes.com/2026/09/27/world/europe/raf-fairford-airbase-arrests.html)
+2. [Two mass shootings in South Africa leave 27 dead](https://www.bbc.co.uk/news/articles/ck5ywnp075d1o?at_medium=RSS&at_campaign=rss)
+3. [South Africa reels from spate of mass shootings that killed 38 people in a week](https://www.npr.org/2026/09/27/nx-s1-5982488/south-africa-mass-shootings-killed-38-week)
+4. [Ten climbers missing after avalanche hits Himalayan base camp](https://www.bbc.co.uk/news/articles/cwjdvml9e897o?at_medium=RSS&at_campaign=rss)
+5. [One dead as nor'easter storm pummels New York and New Jersey](https://www.bbc.co.uk/news/articles/ck1wxxzn5jndo?at_medium=RSS&at_campaign=rss)
+6. [Amid changing dynamics in the Middle East, Turkey seeks to emerge as a leader](https://www.npr.org/2026/09/27/nx-s1-5949210/amid-changing-dynamics-in-the-middle-east-turkey-seeks-to-emerge-as-a-leader)
+7. [Playing 'La Bamba' for an hour? Must be a Mexican fandango!](https://www.npr.org/2026/09/27/nx-s1-5973237/la-bamba-mexico-fandango)
+8. [Photos: These shepherds climb down a mountain to go to night school](https://www.npr.org/2026/09/27/g-s1-143582/night-school-shepherds-lesotho)
+9. ['Scourge' of abuse must be rooted out, says Pope, during Lourdes visit](https://www.bbc.co.uk/news/articles/cm5y5nj8ejj8o?at_medium=RSS&at_campaign=rss)
+10. [At Least 27 Killed in 2 Overnight Mass Shootings in South Africa](https://www.nytimes.com/2026/09/27/world/africa/south-africa-mass-shootings-tavern.html)
 <!-- daily-check end -->
