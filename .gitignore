@@ -1,0 +1,7 @@
+# Local automation and agent files
+/scripts/
+/AGENTS.md
+/.codex/
+
+# Local README backups
+/README.md.bak-*
