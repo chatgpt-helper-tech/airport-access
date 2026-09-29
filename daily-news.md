@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月29日 04:31:07
+更新时间：2026年9月29日 14:35:34
 
-1. [OpenAI scraps rollout of new model over safety concerns](https://www.bbc.co.uk/news/articles/cm5y5nynl75ko?at_medium=RSS&at_campaign=rss)
-2. [US ban on Canadian alcohol and dairy comes into effect as trade war drags on](https://www.bbc.co.uk/news/articles/cm1j43y146d2o?at_medium=RSS&at_campaign=rss)
-3. [New York Times executive fatally shot allegedly by elderly in-laws](https://www.bbc.co.uk/news/articles/cred737qdv2no?at_medium=RSS&at_campaign=rss)
-4. [Argentina threatens legal action against UK over Falkland Islands oil exploration](https://www.bbc.co.uk/news/articles/cq5yj1835y1wo?at_medium=RSS&at_campaign=rss)
-5. [Tennessee governor declines to halt execution of state's lone woman on death row](https://www.bbc.co.uk/news/articles/ckr50yyddljlo?at_medium=RSS&at_campaign=rss)
-6. [Evicted Spanish pensioner can move back home, lawyer says](https://www.bbc.co.uk/news/articles/cmkg8qgy9d9lo?at_medium=RSS&at_campaign=rss)
-7. [British men released on bail after suspected terror plot](https://www.npr.org/2026/09/28/nx-s1-5983550/british-men-released-on-bail-after-suspected-terror-plot)
-8. [French PM warns against escalation of school protests after 164 arrested](https://www.bbc.co.uk/news/articles/cmqxvnn49rg2o?at_medium=RSS&at_campaign=rss)
-9. [3 Egyptian Officials Convicted of Kidnapping Slain Italian Student](https://www.nytimes.com/2026/09/28/world/europe/italy-egypt-giulio-regeni-verdict.html)
-10. [Release of Suspects in U.K. Prompts New Questions Over Possible Terror Plot at RAF Fairford Base](https://www.nytimes.com/2026/09/28/world/europe/us-air-base-uk-terror-incident-fairford.html)
+1. [Bodies ‘Like Pieces of Charcoal’: Dozens Killed in Myanmar Military Bombing](https://www.nytimes.com/2026/09/29/world/asia/myanmar-airstrike-rakhine-market.html)
+2. [US prosecutors reopen case of alleged gang rape at Cornell University](https://www.bbc.co.uk/news/articles/c5wyzrm0n74ro?at_medium=RSS&at_campaign=rss)
+3. [Israeli Settler Attack in West Bank Blocks Palestinian Family From Returning Home](https://www.nytimes.com/2026/09/29/world/middleeast/west-bank-israel-settlers-attack-soldiers-palestinians.html)
+4. [Spain announces new housing measures after protests over 87-year-old woman's eviction](https://www.bbc.co.uk/news/articles/cwm2qmjgy93do?at_medium=RSS&at_campaign=rss)
+5. [Estonia blames Russia for arson at defence company supplying Ukraine](https://www.bbc.co.uk/news/articles/c6m27l4er4jxo?at_medium=RSS&at_campaign=rss)
+6. ['I was lured into a trap': Evan Gershkovich on moment that led to 16 months in Russian jail](https://www.bbc.co.uk/news/articles/ck9qr8jy8ynyo?at_medium=RSS&at_campaign=rss)
+7. [Israeli settlers attack West Bank village and block Palestinian family's return home](https://www.bbc.co.uk/news/articles/cvlylj41egxgo?at_medium=RSS&at_campaign=rss)
+8. [French hard-right leader accuses opponents of 'total war' after claims of antisemitism](https://www.bbc.co.uk/news/articles/cmn45k85gj34o?at_medium=RSS&at_campaign=rss)
+9. [The Migrants Being Shipped Back to a War Zone](https://www.nytimes.com/2026/09/29/world/asia/malaysia-repatriation-myanmar-migrants-asylum.html)
+10. [Accusations of Antisemitism Hit a Star of the French Far Right](https://www.nytimes.com/2026/09/29/world/europe/bardella-antisemitism-denial-france.html)
 <!-- daily-check end -->
