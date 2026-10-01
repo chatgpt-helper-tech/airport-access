@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年9月30日 15:31:29
+更新时间：2026年10月1日 02:39:22
 
-1. [Live Updates: Pilot May Have Attempted to Crash Flight to Israel, Netanyahu Says](https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots)
-2. [Execution of US murderer Christa Pike halted shortly before it was due to happen](https://www.bbc.co.uk/news/articles/cw20vxxn876no?at_medium=RSS&at_campaign=rss)
-3. [Eiffel Tower Chief Resigns After Female Staff Moved for Hindu Group’s Visit](https://www.nytimes.com/2026/09/30/world/europe/eiffel-tower-director-resigns.html)
-4. [Russia launches largest attack on Ukraine energy infrastructure since spring](https://www.bbc.co.uk/news/articles/ckjw5jx2l393o?at_medium=RSS&at_campaign=rss)
-5. [Israel says a flydubai pilot tried to crash a plane of mostly Israeli passengers](https://www.npr.org/2026/09/30/nx-s1-5985806/flydubai-flight-dubai-tel-aviv-israel)
-6. [Moth Swarms Sweep Across Australia. That’s Good News.](https://www.nytimes.com/2026/09/30/world/australia/bogong-moth-migration.html)
-7. [American Forces Withdraw From Iraq 23 Years After Invading](https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-troop-withdrawal.html)
-8. [After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future](https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html)
-9. [Last UK and US troops leave Iraq as anti-Islamic State mission ends](https://www.bbc.co.uk/news/articles/c65ym1dyn92mo?at_medium=RSS&at_campaign=rss)
-10. [Africa's richest man launches Kenya oil refinery despite land protests](https://www.bbc.co.uk/news/articles/cmkg8dpwy25po?at_medium=RSS&at_campaign=rss)
+1. [What we know about stabbing on Flydubai flight to Israel](https://www.bbc.co.uk/news/articles/cqjdv7pmj9dno?at_medium=RSS&at_campaign=rss)
+2. ['Hero' pilot stabbed by other pilot on Israel-bound plane, Israeli PM says](https://www.bbc.co.uk/news/articles/cqgmrm7xd8wyo?at_medium=RSS&at_campaign=rss)
+3. [Plane to Israel Narrowly Averts Disaster After Pilot Stabbing](https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots)
+4. [US Supreme Court allows execution of Christa Pike to go ahead](https://www.bbc.co.uk/news/articles/cq8r6rjdvlx6o?at_medium=RSS&at_campaign=rss)
+5. [California bans child marriage, a practice still legal in 32 US states](https://www.bbc.co.uk/news/articles/c6rm9mnn0w3eo?at_medium=RSS&at_campaign=rss)
+6. [Swiss glaciers suffer 'disastrous' year of ice loss, threatening water supplies](https://www.bbc.co.uk/news/articles/c6n9w0ypjwl9o?at_medium=RSS&at_campaign=rss)
+7. [Tiny image sparks big backlash in Nikon photo contest](https://www.bbc.co.uk/news/articles/ck4gjn1yzprno?at_medium=RSS&at_campaign=rss)
+8. [Putin shows no sign of stopping the war as Russia doubles down on Ukraine](https://www.bbc.co.uk/news/articles/cqx2ze420kpyo?at_medium=RSS&at_campaign=rss)
+9. [After Two Decades, U.S. Forces Leave Iraq to an Uncertain Future](https://www.nytimes.com/2026/09/30/world/middleeast/iraq-us-forces.html)
+10. [Swiss glaciers suffer another year of record ice loss](https://www.npr.org/2026/09/30/nx-s1-5981403/swiss-glaciers-climate-change)
 <!-- daily-check end -->
