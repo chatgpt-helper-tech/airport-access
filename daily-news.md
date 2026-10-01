@@ -1,12 +1,12 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月1日 02:39:22
+更新时间：2026年10月1日 03:38:33
 
-1. [What we know about stabbing on Flydubai flight to Israel](https://www.bbc.co.uk/news/articles/cqjdv7pmj9dno?at_medium=RSS&at_campaign=rss)
-2. ['Hero' pilot stabbed by other pilot on Israel-bound plane, Israeli PM says](https://www.bbc.co.uk/news/articles/cqgmrm7xd8wyo?at_medium=RSS&at_campaign=rss)
-3. [Plane to Israel Narrowly Averts Disaster After Pilot Stabbing](https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots)
-4. [US Supreme Court allows execution of Christa Pike to go ahead](https://www.bbc.co.uk/news/articles/cq8r6rjdvlx6o?at_medium=RSS&at_campaign=rss)
+1. [Tennessee death row inmate Christa Pike taken to hospital after attempted execution, lawyer says](https://www.bbc.co.uk/news/articles/cq8r6rjdvlx6o?at_medium=RSS&at_campaign=rss)
+2. [What we know about stabbing on Flydubai flight to Israel](https://www.bbc.co.uk/news/articles/cqjdv7pmj9dno?at_medium=RSS&at_campaign=rss)
+3. ['Hero' pilot stabbed by other pilot on Israel-bound plane, Israeli PM says](https://www.bbc.co.uk/news/articles/cqgmrm7xd8wyo?at_medium=RSS&at_campaign=rss)
+4. [Plane to Israel Narrowly Averts Disaster After Pilot Stabbing](https://www.nytimes.com/live/2026/09/30/world/dubai-flight-tel-aviv-israel-pilots)
 5. [California bans child marriage, a practice still legal in 32 US states](https://www.bbc.co.uk/news/articles/c6rm9mnn0w3eo?at_medium=RSS&at_campaign=rss)
 6. [Swiss glaciers suffer 'disastrous' year of ice loss, threatening water supplies](https://www.bbc.co.uk/news/articles/c6n9w0ypjwl9o?at_medium=RSS&at_campaign=rss)
 7. [Tiny image sparks big backlash in Nikon photo contest](https://www.bbc.co.uk/news/articles/ck4gjn1yzprno?at_medium=RSS&at_campaign=rss)
