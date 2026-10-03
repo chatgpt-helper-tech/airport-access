@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月2日 13:37:01
+更新时间：2026年10月3日 03:33:48
 
-1. [China’s Push Into A.I. Has Led to a Problem: Too Much Usage](https://www.nytimes.com/2026/10/02/world/asia/china-ai-overuse.html)
-2. [Police in India Detain Hundreds Rallying Against ‘Vote Theft’](https://www.nytimes.com/2026/10/02/world/asia/india-vote-theft-protest-police.html)
-3. [Coast Guard Says It Stopped Ships Carrying Fuel to Cuba](https://www.nytimes.com/2026/10/02/world/americas/coast-guard-cuba-ships-oil.html)
-4. [School protests send shivers down French government's spine](https://www.bbc.co.uk/news/articles/c69wzjjxex8po?at_medium=RSS&at_campaign=rss)
-5. [Indian Pilot Stabbed on FlyDubai Flight Recalls Sudden Attack](https://www.nytimes.com/2026/10/02/world/asia/flydubai-attack-pilot-israel-india-smit-machchhar.html)
-6. [Airlines Set to Bring Israelis Back From U.A.E. After FlyDubai Cockpit Attack](https://www.nytimes.com/2026/10/02/world/middleeast/israel-dubai-uae-flights.html)
-7. [Russia Is Planning Its Most Powerful Blow Yet to Try to Freeze Ukraine](https://www.nytimes.com/2026/10/02/world/europe/russia-ukraine-winter.html)
-8. [Cornell rape case gets special prosecutor. And, Renee Good's family sues the government](https://www.npr.org/2026/10/02/g-s1-146075/up-first-newsletter-cornell-assault-case-christa-pike-jobs-report-renee-good)
-9. [Christa Pike in critical condition after surviving two lethal injections, lawyer says](https://www.bbc.co.uk/news/articles/cmn4540d4z87o?at_medium=RSS&at_campaign=rss)
-10. ['Ashamed': Cornell students gather to voice anger over alleged gang rape](https://www.bbc.co.uk/news/articles/cm0e3ed1er1yo?at_medium=RSS&at_campaign=rss)
+1. [Brazil's big political rematch: What to know](https://www.npr.org/2026/10/02/nx-s1-5989727/brazil-election-lula-bolsonaro-flavio-democracy)
+2. [Cornell frat house rape accuser 'under siege' online, says lawyer](https://www.bbc.co.uk/news/articles/c6ly0ljypzrdo?at_medium=RSS&at_campaign=rss)
+3. [How FlyDubai Passengers and Crew Averted Disaster After Pilot Was Stabbed During Flight](https://www.nytimes.com/2026/10/02/world/middleeast/flydubai-attack-timeline.html)
+4. [Women given shorts at Oktoberfest to prevent upskirting](https://www.bbc.co.uk/news/articles/cjwyzyqvx1zxo?at_medium=RSS&at_campaign=rss)
+5. [US road rage killer's sentence quashed because AI video of victim was shown in court](https://www.bbc.co.uk/news/articles/cwgkvygg5nzvo?at_medium=RSS&at_campaign=rss)
+6. [Widdecombe Murder Suspect Charged With Preparing Acts of Terrorism, Including Against Farage](https://www.nytimes.com/2026/10/02/world/europe/uk-terrorism-nigel-farage.html)
+7. [Riot police clash with students as education protests rage in France](https://www.bbc.co.uk/news/articles/ck3r5dxxwqzpo?at_medium=RSS&at_campaign=rss)
+8. [How Brazil's two leading presidential candidates are talking about crime](https://www.npr.org/2026/10/02/nx-s1-5986091/how-brazils-two-leading-presidential-candidates-are-talking-about-crime)
+9. [Student Protests Rattle France as Police Clashes Bring Blockades and Tear Gas](https://www.nytimes.com/2026/10/02/world/europe/france-schools-protests-unrest.html)
+10. [US murderer Christa Pike unconscious and on ventilator after failed execution, lawyers say](https://www.bbc.co.uk/news/articles/c3kgqw7zvz47o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
