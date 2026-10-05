@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月5日 11:32:44
+更新时间：2026年10月5日 14:36:46
 
-1. [SCOTUS hears major climate change case. And, Brazil's presidential race goes to runoff](https://www.npr.org/2026/10/05/g-s1-146406/up-first-newsletter-flydubai-investigation-colorado-suncor-exxon-brazil-presidential-elections)
-2. [Nobel Prize awarded for showing how nerve cells shape feelings](https://www.bbc.co.uk/news/articles/c5ev3ypmzly8o?at_medium=RSS&at_campaign=rss)
-3. [U.S. Marine suspected in woman's death arrested in Japan](https://www.npr.org/2026/10/05/nx-s1-5990879/u-s-marine-suspected-in-womans-death-arrested-in-japan)
-4. [US air force removes all bombers from British military base RAF Fairford](https://www.bbc.co.uk/news/articles/cmwyve191dlko?at_medium=RSS&at_campaign=rss)
-5. [Supporters of jailed ex-PM Imran Khan begin march in Pakistan](https://www.bbc.co.uk/news/articles/cmkg79z04w4zo?at_medium=RSS&at_campaign=rss)
-6. [Here’s the latest.](https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez/spain-snap-elections-sanchez)
-7. [Spanish PM Sánchez calls early election after housing protests](https://www.bbc.co.uk/news/articles/cmdx39k49xw0o?at_medium=RSS&at_campaign=rss)
-8. [Nobel medicine prize goes to 3 scientists for research into brain activity](https://www.npr.org/2026/10/05/g-s1-146400/nobel-medicine-prize)
-9. [Former Prince Andrew files legal action to quash warrants that led to residence searches](https://www.npr.org/2026/10/05/g-s1-146396/former-prince-andrew-legal-action)
-10. [Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation](https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html)
+1. [Teenager's hand blown off during confrontation between France school protesters and police](https://www.bbc.co.uk/news/articles/c9zrdmxp4vy6o?at_medium=RSS&at_campaign=rss)
+2. [Live Updates: Spain Calls Early Election After Housing Crisis Roils Government](https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez)
+3. [Why Saudi Arabia’s Last War in Yemen Turned Into a Quagmire](https://www.nytimes.com/2026/10/05/world/middleeast/saudi-arabia-war-yemen-houthis-quagmire.html)
+4. [In a Major Boost for the Right, Another Bolsonaro Nears Brazil’s Presidency](https://www.nytimes.com/2026/10/05/world/americas/balsanaro-lula-brazil-presidency-trump.html)
+5. [No10 insists UK military base RAF Fairford is safe after US withdraws bombers](https://www.bbc.co.uk/news/articles/cmy56yvv1kxxo?at_medium=RSS&at_campaign=rss)
+6. [Bombs preventing rescue of kidnapped youths, Nigerian police say](https://www.bbc.co.uk/news/articles/c6gqw8jg7k3go?at_medium=RSS&at_campaign=rss)
+7. [Drones buzz overhead, troops hunker underground in Ukraine's hellish kill zone](https://www.npr.org/2026/10/05/nx-s1-5925803/drones-buzz-overhead-troops-hunker-underground-in-ukraines-hellish-kill-zone)
+8. [FBI arrests a woman accused of spying on Taiwan leader's family for China](https://www.npr.org/2026/10/05/g-s1-146410/fbi-arrests-a-woman-accused-of-spying-on-taiwan-leaders-family-for-china)
+9. [Imran Khan supporters march in Pakistan to demand his release after talks failed](https://www.npr.org/2026/10/05/g-s1-146408/imran-khan-supporters-march-in-pakistan-to-demand-his-release-after-talks-failed)
+10. [Flydubai co-pilot planned to crash plane into Tel Aviv airport or building, reports say](https://www.bbc.co.uk/news/articles/cm3691y79xp5o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
