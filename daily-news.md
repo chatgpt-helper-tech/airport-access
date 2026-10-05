@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月5日 03:33:52
+更新时间：2026年10月5日 11:32:44
 
-1. [Brazil election goes to run-off as right-wing Flávio Bolsonaro wins first round](https://www.bbc.co.uk/news/articles/ck1l34ed592no?at_medium=RSS&at_campaign=rss)
-2. [Brazil Elections Head to Runoff Between Lula and Bolsonaro Son](https://www.nytimes.com/2026/10/04/world/americas/brazil-election-lula-bolsonaro.html)
-3. [Iran’s Top Security Official Warns of Dire Economic Crisis](https://www.nytimes.com/2026/10/04/world/middleeast/iran-economy-rial.html)
-4. [Brazil's presidential race heads to Lula–Bolsonaro run-off as right gains ground](https://www.npr.org/2026/10/04/nx-s1-5981181/brazil-presidential-lula-bolsonaro)
-5. [U.K. Base Would Be Ambitious Target for ‘Gig Economy’ Warfare](https://www.nytimes.com/2026/10/04/world/europe/uk-base-plot-proxy-attacks.html)
-6. [The Amazon's future is on the ballot in Brazil. Many voters aren't focused on it](https://www.npr.org/2026/10/04/nx-s1-5986271/the-amazons-future-is-on-the-ballot-in-brazil-many-voters-arent-focused-on-it)
-7. [Brazil's election could shift its ties with the U.S. and China](https://www.npr.org/2026/10/04/nx-s1-5989593/brazils-election-could-shift-its-ties-with-the-u-s-and-china)
-8. [Brazil votes, with Lula facing Bolsonaro's son](https://www.npr.org/2026/10/04/nx-s1-5981107/brazil-votes-with-lula-facing-bolsonaros-son)
-9. [Houthis Claim Attack on Aramco as Yemen Conflict Escalates](https://www.nytimes.com/2026/10/04/world/middleeast/houthis-oil-attack-saudi-arabia-yemen.html)
-10. [Israeli Authorities Trade Blame for Failure to Flag FlyDubai Co-Pilot](https://www.nytimes.com/2026/10/04/world/middleeast/flydubai-israel-debate-pilot-security.html)
+1. [SCOTUS hears major climate change case. And, Brazil's presidential race goes to runoff](https://www.npr.org/2026/10/05/g-s1-146406/up-first-newsletter-flydubai-investigation-colorado-suncor-exxon-brazil-presidential-elections)
+2. [Nobel Prize awarded for showing how nerve cells shape feelings](https://www.bbc.co.uk/news/articles/c5ev3ypmzly8o?at_medium=RSS&at_campaign=rss)
+3. [U.S. Marine suspected in woman's death arrested in Japan](https://www.npr.org/2026/10/05/nx-s1-5990879/u-s-marine-suspected-in-womans-death-arrested-in-japan)
+4. [US air force removes all bombers from British military base RAF Fairford](https://www.bbc.co.uk/news/articles/cmwyve191dlko?at_medium=RSS&at_campaign=rss)
+5. [Supporters of jailed ex-PM Imran Khan begin march in Pakistan](https://www.bbc.co.uk/news/articles/cmkg79z04w4zo?at_medium=RSS&at_campaign=rss)
+6. [Here’s the latest.](https://www.nytimes.com/live/2026/10/05/world/spain-elections-sanchez/spain-snap-elections-sanchez)
+7. [Spanish PM Sánchez calls early election after housing protests](https://www.bbc.co.uk/news/articles/cmdx39k49xw0o?at_medium=RSS&at_campaign=rss)
+8. [Nobel medicine prize goes to 3 scientists for research into brain activity](https://www.npr.org/2026/10/05/g-s1-146400/nobel-medicine-prize)
+9. [Former Prince Andrew files legal action to quash warrants that led to residence searches](https://www.npr.org/2026/10/05/g-s1-146396/former-prince-andrew-legal-action)
+10. [Former Prince Andrew Sues UK Police After Arrest Linked to Epstein Investigation](https://www.nytimes.com/2026/10/05/world/europe/former-prince-andrew-police-lawsuit-epstein-uk-arrest.html)
 <!-- daily-check end -->
