@@ -1,13 +1,13 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月7日 07:30:52
+更新时间：2026年10月7日 08:32:20
 
-1. [Student Protests Expand to More Than 40 French Cities](https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools)
-2. [US death row inmate Christa Pike awake and speaking after failed execution, lawyers say](https://www.bbc.co.uk/news/articles/c8kgezxn54qko?at_medium=RSS&at_campaign=rss)
-3. [Israelis mourn on the anniversary of the Oct. 7 as Palestinians grapple with war it sparked](https://www.npr.org/2026/10/07/nx-s1-5993459/israelis-oct-7-palestinians-war)
-4. [Residents of kibbutz destroyed in 7 October Hamas-led attacks grapple with how to rebuild](https://www.bbc.co.uk/news/articles/cqrmyz4mdn94o?at_medium=RSS&at_campaign=rss)
-5. [Pornhub returns to Australia but only for adults with Apple devices](https://www.bbc.co.uk/news/articles/cwvgdlzvl9ego?at_medium=RSS&at_campaign=rss)
+1. [India's opposition leader dragged onto bus as police break up protest](https://www.bbc.co.uk/news/articles/crpdgvx82831o?at_medium=RSS&at_campaign=rss)
+2. [Student Protests Expand to More Than 40 French Cities](https://www.nytimes.com/live/2026/10/06/world/france-protests-students-schools)
+3. [US death row inmate Christa Pike awake and speaking after failed execution, lawyers say](https://www.bbc.co.uk/news/articles/c8kgezxn54qko?at_medium=RSS&at_campaign=rss)
+4. [Israelis mourn on the anniversary of the Oct. 7 as Palestinians grapple with war it sparked](https://www.npr.org/2026/10/07/nx-s1-5993459/israelis-oct-7-palestinians-war)
+5. [Residents of kibbutz destroyed in 7 October Hamas-led attacks grapple with how to rebuild](https://www.bbc.co.uk/news/articles/cqrmyz4mdn94o?at_medium=RSS&at_campaign=rss)
 6. [Former Australian bishop jailed for sexually abusing young men](https://www.bbc.co.uk/news/articles/cj62ylxqz173o?at_medium=RSS&at_campaign=rss)
 7. [A beautiful Himalayan bird is changing its voice due to human activity, research shows](https://www.bbc.co.uk/news/articles/cq9868z88rexo?at_medium=RSS&at_campaign=rss)
 8. [Kenya Records Ebola Case for First Time](https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html)
