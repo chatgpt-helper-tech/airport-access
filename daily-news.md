@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月9日 05:38:27
+更新时间：2026年10月10日 08:39:21
 
-1. [Adidas sues Australian label White Fox over four stripes design](https://www.bbc.co.uk/news/articles/c9e8ld448km8o?at_medium=RSS&at_campaign=rss)
-2. [Firing squad execution to be livestreamed, Pentagon says](https://www.bbc.co.uk/news/articles/cmy0r96xygx6o?at_medium=RSS&at_campaign=rss)
-3. [China Expands Its Military Reach by Building a Base in Laos](https://www.nytimes.com/2026/10/08/world/asia/china-military-base-laos.html)
-4. [The long-deployed USS Lincoln returns home to San Diego Bay](https://www.npr.org/2026/10/08/nx-s1-5995911/the-long-deployed-uss-lincoln-returns-home-to-san-diego-bay)
-5. [Suspect linked to Monaco bomb attack on millionaire speaks to BBC from Ukrainian prison](https://www.bbc.co.uk/news/articles/ckgel9044vqeo?at_medium=RSS&at_campaign=rss)
-6. [Escalating Assaults on Ukrainian Cities Are Taking an Enormous Toll](https://www.nytimes.com/2026/10/08/world/europe/russia-ukraine-war-attack-bus.html)
-7. [How a U.S. Diplomat Suppressed and Altered Reports Critical of Israel](https://www.nytimes.com/2026/10/08/world/middleeast/israel-embassy-milstein-huckabee.html)
-8. [French Student Protests Continue as Government Seeks Way Out of Crisis](https://www.nytimes.com/2026/10/08/world/europe/france-student-protests-paris.html)
-9. [Protesters blame 'vulture funds' for Spain's housing crisis](https://www.bbc.co.uk/news/articles/c3j4790elkx7o?at_medium=RSS&at_campaign=rss)
-10. [2 Latvians Arrested after Breaching Perimeter of RAF Molesworth, UK Air Base Used by US](https://www.nytimes.com/2026/10/08/world/europe/latvian-men-arrested-raf-molesworth-uk.html)
+1. [Hurricane Isaias downgraded after making landfall in Florida](https://www.bbc.co.uk/news/articles/c3vgx4450v2lo?at_medium=RSS&at_campaign=rss)
+2. [Trump announces deal for Russian diesel as Zelensky calls it a gift to Putin](https://www.bbc.co.uk/news/articles/cm1dwgr666wno?at_medium=RSS&at_campaign=rss)
+3. [Flydubai attacker began a 'drift towards extremism and terrorism' in Australia, UAE says](https://www.bbc.co.uk/news/articles/cw3dj5n538jpo?at_medium=RSS&at_campaign=rss)
+4. ['Stain on the country': Trump criticises Norway over Nobel Peace Prize](https://www.bbc.co.uk/news/articles/ckgj921e14jdo?at_medium=RSS&at_campaign=rss)
+5. [India Cancels Trains, Floods Capital with Police to Block Protests](https://www.nytimes.com/2026/10/09/world/asia/india-cockroach-protests-delhi.html)
+6. [US country music star Ella Langley cancels show due to 'security threat'](https://www.bbc.co.uk/news/articles/cm79pdlywqd4o?at_medium=RSS&at_campaign=rss)
+7. [Attacker in FlyDubai Flight Meant to Crash Into Israeli Airport, Emiratis Say](https://www.nytimes.com/2026/10/09/world/middleeast/flydubai-pilot-attack.html)
+8. [Human Rights Lawyer Navi Pillay Is Awarded Nobel Peace Prize](https://www.nytimes.com/live/2026/10/09/world/nobel-peace-prize-winner-2026)
+9. [Analysis: Trump's shock Russia deal highlights mounting pressure to curb fuel prices](https://www.bbc.co.uk/news/articles/c5lye9z4xw4yo?at_medium=RSS&at_campaign=rss)
+10. [As Putin Wages Shadow War, Europe Looks for a Way to Hit Back](https://www.nytimes.com/2026/10/09/world/europe/putin-russia-ukraine-war-europe-nato.html)
 <!-- daily-check end -->
