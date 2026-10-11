@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月10日 14:33:25
+更新时间：2026年10月11日 02:33:28
 
-1. [Trump announces deal for Russian diesel as Zelensky calls it a gift to Putin](https://www.bbc.co.uk/news/articles/cm1dwgr666wno?at_medium=RSS&at_campaign=rss)
-2. [Russian glide bomb attack on Zaporizhzhia kills at least 15 people](https://www.bbc.co.uk/news/articles/cwvgdpv642g5o?at_medium=RSS&at_campaign=rss)
-3. [Inside Erik Prince’s Mercenary Deal in Congo](https://www.nytimes.com/2026/10/09/world/africa/erik-prince-congo-mercenary-kennedy-vectus-contract.html)
-4. ['Cockroach' group leaders among hundreds detained in Delhi protest](https://www.bbc.co.uk/news/articles/c65yn7xvde7vo?at_medium=RSS&at_campaign=rss)
-5. [Headmaster detained after BBC investigation into alleged sexual abuse of students](https://www.bbc.co.uk/news/articles/cwy8lx1r2vrro?at_medium=RSS&at_campaign=rss)
-6. [U.S. and Russia tout diesel deal to ease sanctions and reopen fuel flows](https://www.npr.org/2026/10/10/nx-s1-5996938/u-s-and-russia-tout-diesel-deal-to-ease-sanctions-and-reopen-fuel-flows)
-7. [What to Know About the Delhi Protests](https://www.nytimes.com/2026/10/09/world/asia/what-to-know-about-the-delhi-protests.html)
-8. [A Week Later, Russia Hasn’t Said What Pathogen Killed Plague Researcher](https://www.nytimes.com/2026/10/10/world/europe/russia-plague.html)
-9. [Rogue Anthropic AI agent gave police fake tip in unsolved murder case](https://www.bbc.co.uk/news/articles/cqkg50j1yd5lo?at_medium=RSS&at_campaign=rss)
-10. [A year of ceasefire in Gaza through the lens of NPR's reporter](https://www.npr.org/sections/the-picture-show/2026/10/10/nx-s1-5991619/gaza-ceasefire-israel-life)
+1. ['Time for Ukraine to get new president,' says Trump after Zelensky condemns diesel deal](https://www.bbc.co.uk/news/articles/cqe8r5l7n92jo?at_medium=RSS&at_campaign=rss)
+2. [Twelve killed in attack on airport in Saudi capital Riyadh](https://www.bbc.co.uk/news/articles/cw33x4y8k82no?at_medium=RSS&at_campaign=rss)
+3. [Attack on Riyadh airport killed 12 people and wounded over 300 more, Saudi authorities say](https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say)
+4. [Four dead and thousands without power after Hurricane Isaias lashes US](https://www.bbc.co.uk/news/articles/cmje5x80yg70o?at_medium=RSS&at_campaign=rss)
+5. [Young men live in fear of being snatched off the streets and sold to Myanmar's army](https://www.bbc.co.uk/news/articles/c680zlny0gk4o?at_medium=RSS&at_campaign=rss)
+6. [Bayeux Tapestry's London tour spurs enthusiasts to Battle of Hastings reenactment](https://www.npr.org/2026/10/10/nx-s1-5993847/bayeux-tapestrys-london-tour-spurs-enthusiasts-to-battle-of-hastings-re-enactment)
+7. [Trump weighs joining the fight against Houthis after Riyadh airport attack](https://www.npr.org/2026/10/10/nx-s1-5997512/saudi-arabia-riyadh-airport-bombing-attack)
+8. [Protests against voter roll revisions rock capital of world's largest democracy](https://www.npr.org/2026/10/10/nx-s1-5995118/protests-against-voter-roll-revisions-rock-capital-of-worlds-largest-democracy)
+9. [Russian glide bomb attack on Zaporizhzhia kills at least 20 people](https://www.bbc.co.uk/news/articles/cwvgdpv642g5o?at_medium=RSS&at_campaign=rss)
+10. [Expedition hopes to find aviator Amelia Earhart's plane on remote island](https://www.bbc.co.uk/news/articles/c3y0e871rk4vo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
