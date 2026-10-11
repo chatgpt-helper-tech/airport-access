@@ -1,10 +1,10 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月11日 02:33:28
+更新时间：2026年10月11日 05:38:35
 
-1. ['Time for Ukraine to get new president,' says Trump after Zelensky condemns diesel deal](https://www.bbc.co.uk/news/articles/cqe8r5l7n92jo?at_medium=RSS&at_campaign=rss)
-2. [Twelve killed in attack on airport in Saudi capital Riyadh](https://www.bbc.co.uk/news/articles/cw33x4y8k82no?at_medium=RSS&at_campaign=rss)
+1. [Twelve killed and 300 injured in attack on airport in Saudi capital Riyadh](https://www.bbc.co.uk/news/articles/cw33x4y8k82no?at_medium=RSS&at_campaign=rss)
+2. ['Time for Ukraine to get new president,' says Trump after Zelensky condemns diesel deal](https://www.bbc.co.uk/news/articles/cqe8r5l7n92jo?at_medium=RSS&at_campaign=rss)
 3. [Attack on Riyadh airport killed 12 people and wounded over 300 more, Saudi authorities say](https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say)
 4. [Four dead and thousands without power after Hurricane Isaias lashes US](https://www.bbc.co.uk/news/articles/cmje5x80yg70o?at_medium=RSS&at_campaign=rss)
 5. [Young men live in fear of being snatched off the streets and sold to Myanmar's army](https://www.bbc.co.uk/news/articles/c680zlny0gk4o?at_medium=RSS&at_campaign=rss)
