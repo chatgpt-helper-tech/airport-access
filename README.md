@@ -5,7 +5,7 @@
 > **快速结论：**
 >
 > - 第一次买主力机场、想少折腾：优先看 **[BoostNet](https://tw.boostqz.com/?path=register&code=kKMFirlm)**。
-> - 团队办公、多人协作、稳定性第一：优先看 **[WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)**。
+> - 团队办公、多人协作、稳定性第一：优先看 **[WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)**（注册链接需外网环境）。
 > - 更看重 IEPL 线路和晚高峰视频：优先看 **[悠兔](https://tw.youtu1.com/?path=register&code=erkQTmbM)**。
 > - 预算敏感、设备多、想要低价 IEPL / 流媒体性价比：优先看 **[小蜜蜂](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A)**。
 > - 想月付试用、轻量 AI 和日常备用：再看 **[u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c)**。
@@ -25,7 +25,7 @@
 | 你是哪类用户 | 建议先买 | 为什么 | 注意 | 快速入口 |
 | --- | --- | --- | --- | --- |
 | 综合主力、最少折腾 | **BoostNet：¥49/月，200GB/月** | 三网直连 IEPL + 自研客户端，AI、流媒体和办公综合均衡 | 官方客户端优先 | [立即注册](https://tw.boostqz.com/?path=register&code=kKMFirlm) |
-| 团队办公、多人协作、稳定第一 | **WgetCloud：¥237 起 / 90 天** | 自研面板 + IEPL 专线，主打全年在线率和售后响应 | 偏团队 / 企业级稳定，不主打低价 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
+| 团队办公、多人协作、稳定第一 | **WgetCloud：¥237 起 / 90 天** | 自研面板 + IEPL 专线，主打全年在线率和售后响应 | 偏团队 / 企业级稳定，不主打低价 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)（需外网环境） |
 | IEPL 线路和晚高峰视频 | **悠兔：¥39/月，150GB/月** | 高端 IEPL，晚高峰视频样本更突出 | 适合长期主力 | [立即注册](https://tw.youtu1.com/?path=register&code=erkQTmbM) |
 | 预算敏感、设备多、看剧和日常 AI | **小蜜蜂：¥20/月，120GB/月** | 深港 IEPL，不限设备，更偏流媒体性价比 | 直接使用官方客户端 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
 | 月付试用或轻量备用 | **u1s1：¥20/月，120GB/月** | 月付门槛低，适合先试水 | 注意订阅重置规则 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
@@ -41,7 +41,7 @@
 | 机场 | 线路 / 协议 | AI 工具 | 流媒体 | 设备 / 使用限制 | 主要注意点 | 注册入口 |
 | --- | --- | --- | --- | --- | --- | --- |
 | **BoostNet** | 三网直连 IEPL / Anytls / 自研客户端 | ChatGPT / Claude / Copilot 日常主力 | Netflix / Disney+ / YouTube | 常规套餐 5 台同时使用 | 仅限中国大陆使用，新疆不可用 | [立即注册](https://tw.boostqz.com/?path=register&code=kKMFirlm) |
-| **WgetCloud** | 广州 BGP / IEPL / Trojan + Shadowsocks | 优质 / 精品档更适合 ChatGPT、Claude、Copilot、Cursor | 全球流媒体，优质 / 精品档更合适 | 基础 / 优质 / 精品档分别 3 / 4 / 5 个在线 IP | 企业级稳定与售后是强项；普通个人按需选择 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) |
+| **WgetCloud** | 广州 BGP / IEPL / Trojan + Shadowsocks | 优质 / 精品档更适合 ChatGPT、Claude、Copilot、Cursor | 全球流媒体，优质 / 精品档更合适 | 基础 / 优质 / 精品档分别 3 / 4 / 5 个在线 IP | 企业级稳定与售后是强项；普通个人按需选择 | [立即注册](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)（需外网环境） |
 | **悠兔** | 广东入口 / 高端 IEPL / Shadowsocks | ChatGPT 基本全解锁，日美节点优先 | YouTube / Netflix / Disney+ / TikTok | 默认 5 个设备 / IP | 禁 BT / P2P / PT；小白用户优先官方客户端 | [立即注册](https://tw.youtu1.com/?path=register&code=erkQTmbM) |
 | **小蜜蜂** | 深圳入口 / 深港 IEPL / Trojan | ChatGPT / Copilot / Gemini 等常见 AI 场景 | Netflix / Disney+ / HBO / TikTok | 不限设备数 | 当前直接使用官方客户端；套餐和解锁以官网为准 | [立即注册](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) |
 | **u1s1** | IPLC / IEPL / BGP 三网优化 / SS | ChatGPT / Claude / Midjourney / Cursor | Netflix / Disney+ / HBO / DAZN / TikTok | 套餐不限设备，以官网风控规则为准 | 订阅重置规则需要注意 | [立即注册](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) |
@@ -214,7 +214,7 @@ BoostNet 的优势不是单项参数最夸张，而是整体体验更均衡：�
 > - **默认套餐：** **优质专线服务**，需要全球节点覆盖、SLA 专线高可用再看精品专线。
 > - **放心点：** 香港自建机房 + 多线 BGP 中转 + IEPL 专线，主打全年在线率；工单 / 邮件平均 1-3 小时响应。
 > - **先确认：** 当前以季付（90 天）/ 年付为主，是否再开放月付以官方公告为准。
-> - **注册入口：** [立即注册 WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)
+> - **注册入口：** [立即注册 WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)。**仅支持在有外网环境时访问，没有外网环境可能无法打开注册链接。**
 
 如果你是团队办公或高预算稳定性刚需，优先看 WgetCloud 的 **优质专线服务**；只有对全球节点覆盖和更高保障有明确需求时，再考虑精品专线服务。
 
@@ -266,7 +266,7 @@ WgetCloud 一向只做年付，本次重新开放了**季付（90 天）**，三
 
 ### 购买入口
 
-> - **立即注册：** [WgetCloud（企业级稳定方案）](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)
+> - **立即注册：** [WgetCloud（企业级稳定方案）](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)（需外网环境）
 > - **完整测评：** [WgetCloud 机场详细测评](https://gptvpnhelper.com/wgetcloud/)
 
 ### 实测图
@@ -843,7 +843,7 @@ IEPL 和 IPLC 通常属于成本更高的专线或类专线方案，更看重跨
 | 最终需求 | 推荐选择 | 购买建议 |
 | --- | --- | --- |
 | 只想选一家长期主力，不想反复比较 | [BoostNet](https://tw.boostqz.com/?path=register&code=kKMFirlm) | 先看 200G/月主力档 |
-| 团队办公、多人协作、稳定第一 | [WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh) | 优先看优质专线服务 |
+| 团队办公、多人协作、稳定第一 | [WgetCloud](https://invite.wgetcloud.ltd/auth/register?code=kVJQPh)（需外网环境） | 优先看优质专线服务 |
 | 更看重 IEPL 线路质量和晚高峰视频体验 | [悠兔](https://tw.youtu1.com/?path=register&code=erkQTmbM) | 先看 300G/月主力档 |
 | 预算敏感、设备多、想要低价 IEPL | [小蜜蜂](https://tangwu095.xmfvipaff01.cc/register?aff=oClLBb5A) | 轻度看年付小包，日常主力看 120GB/月或 240GB/月 |
 | 想先月付试用或轻量备用 | [u1s1](https://realvpntest.vipaff.cc/#/?code=N8zXLB0c) | 先看 120GB/月，确认可用后再续 |
