@@ -667,6 +667,7 @@ WgetCloud 一向只做年付，本次重新开放了**季付（90 天）**，三
 ### 购买入口
 
 > - **立即注册：** [灵猫机场（全 IPLC 专线 / VLESS）](https://realvpntest.civetaff.com/#/?code=2oZRkmKE)
+> - **完整测评：** [灵猫网络详细测评](https://gptvpnhelper.com/lingmao/)
 > - **使用教程：** 登录官网后查看知识库，有官方客户端和 iOS Nextin 的详细教程。
 
 ### 实测图
