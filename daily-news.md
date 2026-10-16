@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月15日 13:37:02
+更新时间：2026年10月16日 06:33:33
 
-1. [32 Children Killed After School Roof Collapses in Pakistan](https://www.nytimes.com/2026/10/15/world/asia/pakistan-school-collapse.html)
-2. [While Pope Leo Recovers From Lung Surgery, the Vatican Runs on Autopilot](https://www.nytimes.com/2026/10/15/world/europe/pope-leo-cancer-surgery-vatican.html)
-3. [At least 33 pupils and teacher killed after school roof collapses in Pakistan](https://www.bbc.co.uk/news/articles/cked326llddgo?at_medium=RSS&at_campaign=rss)
-4. [Russia accuses Ukraine of attacking oil refinery after Zelensky says strikes to resume](https://www.bbc.co.uk/news/articles/cqwyrnwd9dw1o?at_medium=RSS&at_campaign=rss)
-5. [Home of London’s Oldest Restaurant, Rules, Is Given to National Trust](https://www.nytimes.com/2026/10/15/world/europe/rules-london-restaurant-national-trust.html)
-6. [Meet Neha Bora, Activist and Face of India’s Young Protesters](https://www.nytimes.com/2026/10/15/world/asia/india-student-leader-neha.html)
-7. [Zelensky Says Ukraine Will Resume Russian Refinery Strikes, Defying Trump](https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html)
-8. [Why Does Saudi Arabia Struggle to Stop Houthi Attacks?](https://www.nytimes.com/2026/10/15/world/middleeast/saudi-arabia-defense-houthi-attacks-yemen.html)
-9. [Social Security benefits to get a boost. And, Hasan Piker defends his rhetoric](https://www.npr.org/2026/10/15/g-s1-148199/up-first-newsletter-inflation-social-security-ukraine-russia-yemen-saudi-arabia)
-10. [Eight crew missing after drone attack leaves tanker ablaze off Romania's coast](https://www.bbc.co.uk/news/articles/c60qkgpp592yo?at_medium=RSS&at_campaign=rss)
+1. [Ship attack reports near Hormuz reach record high as oil exports slow](https://www.bbc.co.uk/news/articles/cmde8dpg8g0no?at_medium=RSS&at_campaign=rss)
+2. [Three children and teacher killed in US primary school shooting](https://www.bbc.co.uk/news/articles/cm89zp48k4kzo?at_medium=RSS&at_campaign=rss)
+3. [Zelensky Says Ukraine Will Resume Russian Refinery Strikes, Defying Trump](https://www.nytimes.com/2026/10/15/world/europe/ukraine-russia-oil-strikes-zelensky-us-intelligence.html)
+4. ['It's really hard to believe' - How Oregon primary school shooting unfolded](https://www.bbc.co.uk/news/videos/cwe8r29mjd05o?at_medium=RSS&at_campaign=rss)
+5. [Houthi Missiles Strike Government Headquarters in Yemen](https://www.nytimes.com/2026/10/15/world/middleeast/yemen-strike-aden-palace.html)
+6. [Bus hits train stopped on French side of Channel Tunnel, with 19 injured](https://www.bbc.co.uk/news/articles/c6wyrnmgzn01o?at_medium=RSS&at_campaign=rss)
+7. [Violent Protests in Albania](https://www.nytimes.com/2026/10/15/world/europe/albania-student-protests-violence.html)
+8. [Dublin Hotel Accused of Revoking Bookings for an Event to Combat Antisemitism](https://www.nytimes.com/2026/10/15/world/europe/ireland-dublin-hotel-antisemitism.html)
+9. [Trump calls off livestream of Fort Hood attacker's execution by firing squad](https://www.bbc.co.uk/news/articles/crx23qlnj27qo?at_medium=RSS&at_campaign=rss)
+10. [Second Ebola Infection Announced in Kenya](https://www.nytimes.com/2026/10/15/world/africa/kenya-ebola-infections.html)
 <!-- daily-check end -->
