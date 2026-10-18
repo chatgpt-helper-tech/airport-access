@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月18日 09:33:57
+更新时间：2026年10月18日 12:32:18
 
-1. [Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire](https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html)
-2. [Several dead or injured in major fire at Canada military base](https://www.bbc.co.uk/news/articles/cr86z0w4lxdxo?at_medium=RSS&at_campaign=rss)
-3. [At Least 19 Dead After Stampede at Indian Religious Event](https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html)
-4. [France in Shock After Protests Devolve Into Riots](https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html)
-5. [In India, the Scion of a Political Dynasty Tries to Seize His Moment](https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.html)
-6. [Major fire breaks out in Alberta after deadly incident at military base](https://www.npr.org/2026/10/18/nx-s1-6007276/fire-alberta-deadly-canada-military-base)
-7. [Israeli Settlers Attack Palestinians and European Officials in West Bank](https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html)
-8. [Unrest Mars Day of Protest in France, as Student Movement Turns National](https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html)
-9. [Violent clashes, looting and buildings ablaze in France as more than 1,200 arrested after protests](https://www.bbc.co.uk/news/articles/c6d937wedj7jo?at_medium=RSS&at_campaign=rss)
-10. [Church makes sainthood case for 'WW1 hero' priest](https://www.bbc.co.uk/news/articles/cmg47rwddpxko?at_medium=RSS&at_campaign=rss)
+1. [European diplomats attacked by Israeli settlers in West Bank](https://www.bbc.co.uk/news/articles/c962ydpmjm3zo?at_medium=RSS&at_campaign=rss)
+2. [Burnt out cars and shattered glass on Paris streets after protests turn to riots and looting](https://www.bbc.co.uk/news/articles/c574pdzl0k4no?at_medium=RSS&at_campaign=rss)
+3. [Pope Leo Addresses the Faithful a Day After Leaving the Hospital](https://www.nytimes.com/2026/10/18/world/europe/pope-leo-mass-lung-cancer.html)
+4. [Oil facilities hit in deadly overnight attack on St Petersburg](https://www.bbc.co.uk/news/articles/c3eweygrjzd7o?at_medium=RSS&at_campaign=rss)
+5. [Egypt’s Defense Chiefs Pledge to Support Saudi Arabia After Houthi Attacks](https://www.nytimes.com/2026/10/18/world/middleeast/egypt-saudi-defense-houthis.html)
+6. [Ukraine Strikes Russian Oil Terminal, as Starshield Disruptions Persist](https://www.nytimes.com/2026/10/18/world/europe/ukraine-starshield-russia-war.html)
+7. [Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire](https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html)
+8. [Several dead or injured in major fire at Canada military base](https://www.bbc.co.uk/news/articles/cr86z0w4lxdxo?at_medium=RSS&at_campaign=rss)
+9. [France in Shock After Protests Devolve Into Riots](https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html)
+10. [In India, the Scion of a Political Dynasty Tries to Seize His Moment](https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.html)
 <!-- daily-check end -->
