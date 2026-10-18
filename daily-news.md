@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月18日 03:36:14
+更新时间：2026年10月18日 09:33:57
 
-1. [Deadly fire breaks out at Canada military base](https://www.bbc.co.uk/news/articles/cr86z0w4lxdxo?at_medium=RSS&at_campaign=rss)
-2. [Israeli Settlers Attack Palestinians and European Officials in West Bank](https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html)
-3. [Trump waives several Russia sanctions as row with Zelensky intensifies](https://www.bbc.co.uk/news/articles/cxr5yvzv7rp0o?at_medium=RSS&at_campaign=rss)
-4. [European diplomats attacked by Israeli settlers in West Bank](https://www.bbc.co.uk/news/articles/c962ydpmjm3zo?at_medium=RSS&at_campaign=rss)
-5. [Photos show luxury boat with 50m pool and water slides near Kim Jong Un's summer retreat](https://www.bbc.co.uk/news/articles/cmy4xnyyg1lyo?at_medium=RSS&at_campaign=rss)
-6. [Unrest Mars Day of Protest in France, as Student Movement Turns National](https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html)
-7. [17 Dead, Dozens Injured After Stampede at Indian Religious Event](https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html)
-8. [Student protests widen into greater social unrest in France](https://www.npr.org/2026/10/17/nx-s1-6006735/student-protests-widen-into-greater-social-unrest-in-france)
-9. [The state of the State Department in the wake of the Kimberly Guilfoyle scandal](https://www.npr.org/2026/10/17/nx-s1-6001729/the-state-of-the-state-department-in-the-wake-of-the-kimberly-guilfoyle-scandal)
-10. [Anti-government protesters battle with police in Albania](https://www.bbc.co.uk/news/articles/crwydey50xeno?at_medium=RSS&at_campaign=rss)
+1. [Deadly ‘Incident’ at Canadian Forces Base Wainwright Sparks Fire](https://www.nytimes.com/2026/10/17/world/canada/fire-canadian-army-base-wainwright.html)
+2. [Several dead or injured in major fire at Canada military base](https://www.bbc.co.uk/news/articles/cr86z0w4lxdxo?at_medium=RSS&at_campaign=rss)
+3. [At Least 19 Dead After Stampede at Indian Religious Event](https://www.nytimes.com/2026/10/17/world/asia/india-deadly-stampede-kolkata.html)
+4. [France in Shock After Protests Devolve Into Riots](https://www.nytimes.com/2026/10/18/world/europe/france-protests-shock-arson.html)
+5. [In India, the Scion of a Political Dynasty Tries to Seize His Moment](https://www.nytimes.com/2026/10/18/world/asia/india-gandhi-political-dynasty.html)
+6. [Major fire breaks out in Alberta after deadly incident at military base](https://www.npr.org/2026/10/18/nx-s1-6007276/fire-alberta-deadly-canada-military-base)
+7. [Israeli Settlers Attack Palestinians and European Officials in West Bank](https://www.nytimes.com/2026/10/17/world/middleeast/israeli-settlers-attack-palestinians-diplomats-west-bank.html)
+8. [Unrest Mars Day of Protest in France, as Student Movement Turns National](https://www.nytimes.com/2026/10/17/world/europe/france-protest-riots-marseille.html)
+9. [Violent clashes, looting and buildings ablaze in France as more than 1,200 arrested after protests](https://www.bbc.co.uk/news/articles/c6d937wedj7jo?at_medium=RSS&at_campaign=rss)
+10. [Church makes sainthood case for 'WW1 hero' priest](https://www.bbc.co.uk/news/articles/cmg47rwddpxko?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
