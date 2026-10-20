@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月19日 09:33:09
+更新时间：2026年10月20日 01:36:21
 
-1. [Ukraine Uses F-16s to Shoot Down Russia’s Jet-Powered Drones](https://www.nytimes.com/2026/10/19/world/europe/ukraine-f16-fighter-jets-drones-russia.html)
-2. [France’s Far Right Seizes the Moment as Rioting Stuns the Country](https://www.nytimes.com/2026/10/19/france-far-right-protests-riots.html)
-3. [María Corina Machado on Venezuela’s Future and Her Relationship With the Trump Administration](https://www.nytimes.com/2026/10/19/world/americas/maria-corina-machado-venezuela-trump.html)
-4. [As Alberta Holds a Referendum on Separatism, Premier Danielle Smith Has Alienated Both Sides](https://www.nytimes.com/2026/10/19/world/canada/alberta-referendum-danielle-smith.html)
-5. [To Find Criminals and Child Exploitation in Gold Mines, We Just Had to Look](https://www.nytimes.com/2026/10/19/world/africa/gold-regulators-not-looking.html)
-6. [How a Trillion-Dollar Industry Launders Illegal Gold](https://www.nytimes.com/2026/10/19/world/africa/dirty-gold-industry-coverup-launder-madagascar.html)
-7. [For Israelis and Jews in the U.A.E., an Eroding Sense of Security](https://www.nytimes.com/2026/10/19/world/middleeast/jews-dubai-fear.html)
-8. [Solar power is changing agriculture in Pakistan, but some fear it could cause issues](https://www.npr.org/2026/10/19/nx-s1-5993523/solar-power-is-changing-agriculture-in-pakistan-but-some-fear-it-could-cause-issues)
-9. [Bangladesh says it was not informed of its citizens' execution by Saudi Arabia](https://www.bbc.co.uk/news/articles/cmde83w13p00o?at_medium=RSS&at_campaign=rss)
-10. [Katya Adler: France's government under pressure after weekend of widespread violence](https://www.bbc.co.uk/news/articles/crwyd02yz22vo?at_medium=RSS&at_campaign=rss)
+1. [Five ways El Niño is affecting the weather around the world](https://www.bbc.co.uk/weather/articles/c6dx07dznpyyo?at_medium=RSS&at_campaign=rss)
+2. [Alberta voters decide whether to take a step toward separating from Canada](https://www.npr.org/2026/10/19/nx-s1-6005810/alberta-voters-decide-whether-to-take-a-step-toward-separating-from-canada)
+3. [The French Teen Maimed During School Unrest by Tear Gas Grenade](https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html)
+4. [Italy Faces Parallel Protests in the North and South](https://www.nytimes.com/2026/10/19/world/europe/italy-protests-riots.html)
+5. [Curfew imposed in parts of central Paris and other cities after rioting across France](https://www.bbc.co.uk/news/articles/cx30ez03djyqo?at_medium=RSS&at_campaign=rss)
+6. [Ex-OpenAI worker accused of planting device had Saudi support, says court filing](https://www.bbc.co.uk/news/articles/c6gel2dlyxvyo?at_medium=RSS&at_campaign=rss)
+7. [Tennis star Svitolina says emotional toll of Ukraine war led to Monfils separation](https://www.bbc.co.uk/news/articles/ckd7qy12j148o?at_medium=RSS&at_campaign=rss)
+8. [Ukrainians dying because US restricting intelligence sharing, Zelensky adviser tells BBC](https://www.bbc.co.uk/news/articles/cmj47yx572z5o?at_medium=RSS&at_campaign=rss)
+9. [For Israelis and Jews in the U.A.E., an Eroding Sense of Security](https://www.nytimes.com/2026/10/19/world/middleeast/israel-uae-jews-dubai-fear.html)
+10. [France Imposes Curfews in Parts of Paris and Other Cities After Nationwide Rioting](https://www.nytimes.com/2026/10/19/world/europe/france-protests-riots.html)
 <!-- daily-check end -->
