@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月20日 07:38:58
+更新时间：2026年10月20日 14:35:11
 
-1. [Voters in Oil-Rich Alberta Reject Leaving Canada](https://www.nytimes.com/2026/10/19/world/canada/alberta-secession-canada-referendum.html)
-2. [French cities calm overnight after curfews imposed to quell violence, PM says](https://www.bbc.co.uk/news/articles/cw5yn5e8mezvo?at_medium=RSS&at_campaign=rss)
-3. [Attack on Australian Lawmaker Prompts Calls to Dial Down Political Tensions](https://www.nytimes.com/2026/10/20/world/asia/helen-haines-mp-attacked-wangaratta-australia.html)
-4. [Alberta voters reject a move toward independence in referendum backing Canadian unity](https://www.npr.org/2026/10/20/nx-s1-6008832/alberta-referendum-canada)
-5. [The A.I. Data Center Backlash Has Reached a Quiet Corner of Rural England](https://www.nytimes.com/2026/10/20/world/europe/ai-datacenter-devon-uk-backlash.html)
-6. [Canadian tourist found guilty of animal cruelty after stealing Las Vegas flamingo from enclosure](https://www.bbc.co.uk/news/articles/cq398rjewd1jo?at_medium=RSS&at_campaign=rss)
-7. [Seventh day of violent clashes between Albanian protesters and police](https://www.bbc.co.uk/news/articles/cmy4xjlpqgd3o?at_medium=RSS&at_campaign=rss)
-8. [Alberta voters decide whether to take a step toward separating from Canada](https://www.npr.org/2026/10/19/nx-s1-6005810/alberta-voters-decide-whether-to-take-a-step-toward-separating-from-canada)
-9. [The French Teen Maimed During School Unrest by Tear Gas Grenade](https://www.nytimes.com/2026/10/19/world/europe/france-protests-violence-police-response.html)
-10. [Italy Faces Parallel Protests in the North and South](https://www.nytimes.com/2026/10/19/world/europe/italy-protests-riots.html)
+1. [Yemeni City of Taiz Running Out of Essentials as Houthis Close in](https://www.nytimes.com/2026/10/20/world/middleeast/yemen-taiz-houthi-siege.html)
+2. [France to Extend Curfews After Calm Night Follows Days of Riots](https://www.nytimes.com/2026/10/20/world/europe/france-curfews-riots-protests-extended.html)
+3. [Rubio Travels to India to Strengthen Economic Ties Amid Strained U.S. Relations](https://www.nytimes.com/2026/10/20/world/asia/marco-rubio-india-us-trade-deal.html)
+4. [Zelensky and US envoys to hold Oslo talks as Rubio denies withholding intelligence](https://www.bbc.co.uk/news/articles/ck9qzn193lrlo?at_medium=RSS&at_campaign=rss)
+5. [Kenya cult leader's children still being starved weeks before trial, son says](https://www.bbc.co.uk/news/articles/c6d7q2rxqxgxo?at_medium=RSS&at_campaign=rss)
+6. [France Protests Show Europe’s Shift Away From Centrist Politics](https://www.nytimes.com/2026/10/20/world/europe/france-protests-europe-centrist-far-right.html)
+7. [Suspect arrested after historic town hall set alight - French media](https://www.bbc.co.uk/news/articles/cw5yn5e8mezvo?at_medium=RSS&at_campaign=rss)
+8. [UK to Send Fighter Jets to Help Defend Saudi Arabia From Houthi Attacks](https://www.nytimes.com/2026/10/20/world/europe/uk-saudi-arabia-houthis-raf-typhoon-fighter-jets.html)
+9. [The Mayor of a City in Haiti Warned of a Massacre. No One Listened.](https://www.nytimes.com/2026/10/20/world/americas/mayor-kenscoff-haiti-gangs-massacre.html)
+10. [Marseille braces for more unrest after protests give way to 'apocalyptic' disorder](https://www.bbc.co.uk/news/articles/cm5ynkk570pno?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
