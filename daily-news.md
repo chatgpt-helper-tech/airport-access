@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月22日 13:33:00
+更新时间：2026年10月23日 07:39:21
 
-1. [Two European women held captive for more than a year in Niger freed in Libya](https://www.bbc.co.uk/news/articles/cq62y0v7434yo?at_medium=RSS&at_campaign=rss)
-2. [Grandparent hugging consent ad pulled after criticism](https://www.bbc.co.uk/news/articles/c83vqn6zwrx0o?at_medium=RSS&at_campaign=rss)
-3. [Global Rush to Fix PHP Security Flaw Leaves Some Websites Offline](https://www.nytimes.com/2026/10/22/world/php-vulnerability-websites-cybersecurity-ai.html)
-4. [U.S., Israel may attack Iran post-elections. And, SpaceX and Tesla consider merging](https://www.npr.org/2026/10/22/g-s1-149315/up-first-newsletter-midterm-campaign-israel-iran-elon-musk-spacex-tesla)
-5. [At least four dead after storm brings flooding to southern France](https://www.bbc.co.uk/news/articles/cm5ynl4v4wgwo?at_medium=RSS&at_campaign=rss)
-6. [Putin Nears a Prize: Restoring Ties With the U.S. While Giving Up Nothing](https://www.nytimes.com/2026/10/22/world/europe/putin-trump-ukraine-war.html)
-7. [Strike on Saudi Airport Kills 2 as U.S. Tells Some Diplomats to Leave](https://www.nytimes.com/2026/10/22/world/middleeast/saudi-houthis-yemen-dammam-airport.html)
-8. [First human case of Shamonda virus detected in France, officials say](https://www.bbc.co.uk/news/articles/c6reyx1d9ge9o?at_medium=RSS&at_campaign=rss)
-9. [Archers Mount Their Steeds in Pursuit of Centuries-Old Warrior Spirit](https://www.nytimes.com/2026/10/22/world/middleeast/horseback-archery-nomad-games.html)
-10. [El Salvador's president threatens Haitian gangs over military hostages](https://www.bbc.co.uk/news/articles/cq33xpjekve4o?at_medium=RSS&at_campaign=rss)
+1. [Powerful Earthquake in Tibet Kills at Least 16](https://www.nytimes.com/2026/10/22/world/asia/earthquake-tibet-china.html)
+2. [Powerful earthquake hits Tibet killing 16 people, reports say](https://www.bbc.co.uk/news/articles/ck5ynd1z6e83o?at_medium=RSS&at_campaign=rss)
+3. [Arms Race Intensifies in Korea as the North Is Emboldened by Russia Alliance](https://www.nytimes.com/2026/10/23/world/asia/korea-missiles-drones-russia.html)
+4. [Nigeria and Kenya Ebola patients may have crossed paths at Uganda airport, officials say](https://www.bbc.co.uk/news/articles/cmwy4wlzqz3zo?at_medium=RSS&at_campaign=rss)
+5. [How Pastors Mobilize Communities in Congo’s Fight Against Ebola](https://www.nytimes.com/2026/10/23/world/africa/congo-ebola-catholic-church-rumors.html)
+6. [Gadi Eisenkot Couldn’t Be More Unlike Netanyahu. Can He Beat Him?](https://www.nytimes.com/2026/10/23/world/middleeast/gadi-eisenkot-israel-election.html)
+7. [Trump ordered to answer questions under oath in BBC lawsuit](https://www.bbc.co.uk/news/articles/cmy0ryjx7741o?at_medium=RSS&at_campaign=rss)
+8. [Hospitals deliberately targeted by Sudan's RSF fighters, BBC finds](https://www.bbc.co.uk/news/articles/c54g1kxw4nvvo?at_medium=RSS&at_campaign=rss)
+9. [L'Oreal says weight loss drugs are impacting beauty and skincare sales](https://www.bbc.co.uk/news/articles/cvglwgwpgrlpo?at_medium=RSS&at_campaign=rss)
+10. [What we know about war plans that Trump and Netanyahu are drawing up](https://www.npr.org/2026/10/22/nx-s1-6012306/what-we-know-about-war-plans-that-trump-and-netanyahu-are-drawing-up)
 <!-- daily-check end -->
