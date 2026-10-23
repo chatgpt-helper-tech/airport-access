@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月23日 09:33:35
+更新时间：2026年10月23日 15:37:21
 
-1. [The Epstein Files Produce an Unlikely Weapon for the Houthi Messaging Wars](https://www.nytimes.com/2026/10/23/world/middleeast/houthis-saudi-arabia-propaganda-epstein.html)
-2. [As Brazil Prepares for Election Runoff, a Town Offers Clues to Bolsonaro’s Rise](https://www.nytimes.com/2026/10/23/world/americas/brazil-election-voters-lula-bolsonaro-minas-gerais.html)
-3. [The Bukeleization of Latin America Has Arrived](https://www.nytimes.com/2026/10/23/world/americas/the-bukeleization-of-latin-america-has-arrived.html)
-4. [After nearly 6 years, ex-Myanmar leader Aung San Suu Kyi's son hears her voice](https://www.npr.org/2026/10/23/nx-s1-6012784/aung-san-suu-kyi-son-phone-call-myanmar)
-5. [Brazil's runoff: Lula's legacy vs. Bolsonaro's dynasty](https://www.npr.org/2026/10/23/nx-s1-6004277/brazil-vote-runoff-lula-bolsonaro)
-6. [Hundreds of flights cancelled as Typhoon Champi shuts Taiwan](https://www.bbc.co.uk/news/articles/cw98zn304zg7o?at_medium=RSS&at_campaign=rss)
-7. [Ukraine says Starlink still restricted after Trump says limits lifted](https://www.bbc.co.uk/news/articles/cq74pjpmx0e8o?at_medium=RSS&at_campaign=rss)
-8. [Europe's heat claims 50,000 lives. Climate change blamed for two-thirds of deaths](https://www.npr.org/2026/10/23/g-s1-149498/europe-heat-deaths)
-9. [Nigeria and Kenya Ebola patients may have crossed paths at Uganda airport, officials say](https://www.bbc.co.uk/news/articles/cmwy4wlzqz3zo?at_medium=RSS&at_campaign=rss)
-10. [Hospitals deliberately targeted by Sudan's RSF fighters, BBC finds](https://www.bbc.co.uk/news/articles/c54g1kxw4nvvo?at_medium=RSS&at_campaign=rss)
+1. [Oil spill washes up on UAE beaches after tanker strike](https://www.bbc.co.uk/news/articles/c6rey3n974g5o?at_medium=RSS&at_campaign=rss)
+2. [Gunmen Open Fire at Church in Jordan, Killing at Least Six](https://www.nytimes.com/2026/10/23/world/middleeast/jordan-church-shooting.html)
+3. [How a U.K. Official’s Wife Set Off a Debate Over Free Speech and Palestinians](https://www.nytimes.com/2026/10/23/world/europe/uk-powell-sarah-helm-palestine.html)
+4. [Six shot dead by gunmen at church funeral in Jordan, officials say](https://www.bbc.co.uk/news/articles/ck87zlpzny15o?at_medium=RSS&at_campaign=rss)
+5. [White House says Melania Trump brokers truce for Ukraine city 'on brink of disaster'](https://www.bbc.co.uk/news/articles/c6vgxkvl4w5eo?at_medium=RSS&at_campaign=rss)
+6. [Finland’s Puppy Livestream Provides Comfort in Troubled Times](https://www.nytimes.com/2026/10/23/world/europe/finland-puppies-livestream-slow-tv.html)
+7. [Two Israeli soldiers killed in attack by suspected Palestinian gunmen in West Bank](https://www.bbc.co.uk/news/articles/cq4g1p974wxko?at_medium=RSS&at_campaign=rss)
+8. [PSG v Lyon moved as Paris prepares for more protests](https://www.bbc.co.uk/sport/football/articles/cw8rz3eyn26po?at_medium=RSS&at_campaign=rss)
+9. [France Plans to Bolster Police Presence, Expecting New Protests](https://www.nytimes.com/2026/10/23/world/europe/france-police-protests.html)
+10. [Deadly shooting near Paris investigated as 'crime of terrorism', minister says](https://www.bbc.co.uk/news/articles/c6ev38dj1g8zo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
