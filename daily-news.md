@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月24日 12:32:48
+更新时间：2026年10月25日 01:30:53
 
-1. [Live Updates: France Deploys Vast Security Force in Bid to Prevent More Riots](https://www.nytimes.com/live/2026/10/24/world/france-protests-riots)
-2. [Ukraine says Starlink connection 'now stable' after network limits](https://www.bbc.co.uk/news/articles/cwkg5md14j8go?at_medium=RSS&at_campaign=rss)
-3. [Gunmen open fire at a church during a funeral in Jordan, killing 7 and wounding 40](https://www.npr.org/2026/10/24/nx-s1-6015414/shooting-church-jordan)
-4. [Israel Launches Crackdown in West Bank City After Deadly Attack](https://www.nytimes.com/2026/10/24/world/middleeast/israel-military-hebron-west-bank.html)
-5. [European student protests take aim at Serbia's elections](https://www.npr.org/2026/10/24/nx-s1-6012799/european-student-protests-take-aim-at-serbias-elections)
-6. [Arrest made after fire at Hitler's mountaintop Eagle's Nest retreat](https://www.bbc.co.uk/news/articles/cr93zwjw1k4qo?at_medium=RSS&at_campaign=rss)
-7. [‘Eagle’s Nest,’ Nazi-Era Guesthouse in German Alps, Is Gutted by Fire](https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html)
-8. [North Korea’s Kim Jong-un Arrives in China, South Korea Says](https://www.nytimes.com/2026/10/24/world/asia/north-korea-kim-jong-un-china.html)
-9. [Speed of Starshield Satellite Network Is Improving, Ukraine Says](https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html)
-10. [Woman, 65, becomes second patient to die of Ebola in Kenya](https://www.bbc.co.uk/news/articles/c6x2355448eyo?at_medium=RSS&at_campaign=rss)
+1. [Elon Musk Says Ukraine Violated Starlink’s Rules](https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html)
+2. [Remains Found in Haiti Could Be Those of Missing Salvadoran Soldiers](https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html)
+3. [Palestinian families displaced as Israeli forces demolish Hebron homes](https://www.bbc.co.uk/news/articles/cqd09k1k7532o?at_medium=RSS&at_campaign=rss)
+4. [Violent Protests Resurface in Albania: What to Know](https://www.nytimes.com/2026/10/17/world/europe/albania-protests-what-to-know.html)
+5. [Unrest Erupts Again in France, but This Time, With Less Property Damage](https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html)
+6. [Protests roil France once again as police seek to quell violence](https://www.npr.org/2026/10/24/nx-s1-6014520/protests-roil-france-once-again-as-police-seek-to-quell-violence)
+7. [Why a far-right cabinet minister in Israel has Netanyahu's ear](https://www.npr.org/2026/10/24/nx-s1-6010464/why-a-far-right-cabinet-minister-in-israel-has-netanyahus-ear)
+8. [Almost 1,000 arrested as clashes follow another day of mass protests across France](https://www.bbc.co.uk/news/articles/c95ynd587ynzo?at_medium=RSS&at_campaign=rss)
+9. [‘Eagle’s Nest,’ Nazi-Era Guesthouse in German Alps, Is Gutted by Fire](https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html)
+10. [Vanessa Trump says she is cancer-free six months after revealing diagnosis](https://www.bbc.co.uk/news/articles/cm1dwzvn6227o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
