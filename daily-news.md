@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月25日 01:30:53
+更新时间：2026年10月25日 11:30:40
 
-1. [Elon Musk Says Ukraine Violated Starlink’s Rules](https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html)
-2. [Remains Found in Haiti Could Be Those of Missing Salvadoran Soldiers](https://www.nytimes.com/2026/10/24/world/americas/salvadoran-soldiers-haiti-dead.html)
-3. [Palestinian families displaced as Israeli forces demolish Hebron homes](https://www.bbc.co.uk/news/articles/cqd09k1k7532o?at_medium=RSS&at_campaign=rss)
-4. [Violent Protests Resurface in Albania: What to Know](https://www.nytimes.com/2026/10/17/world/europe/albania-protests-what-to-know.html)
-5. [Unrest Erupts Again in France, but This Time, With Less Property Damage](https://www.nytimes.com/2026/10/24/world/europe/france-protests-unrest-clashes-police.html)
-6. [Protests roil France once again as police seek to quell violence](https://www.npr.org/2026/10/24/nx-s1-6014520/protests-roil-france-once-again-as-police-seek-to-quell-violence)
-7. [Why a far-right cabinet minister in Israel has Netanyahu's ear](https://www.npr.org/2026/10/24/nx-s1-6010464/why-a-far-right-cabinet-minister-in-israel-has-netanyahus-ear)
-8. [Almost 1,000 arrested as clashes follow another day of mass protests across France](https://www.bbc.co.uk/news/articles/c95ynd587ynzo?at_medium=RSS&at_campaign=rss)
-9. [‘Eagle’s Nest,’ Nazi-Era Guesthouse in German Alps, Is Gutted by Fire](https://www.nytimes.com/2026/10/24/world/europe/eagles-nest-fire-nazi-germany.html)
-10. [Vanessa Trump says she is cancer-free six months after revealing diagnosis](https://www.bbc.co.uk/news/articles/cm1dwzvn6227o?at_medium=RSS&at_campaign=rss)
+1. [Voters in Brazil head to polls as Lula goes up against Bolsonaro's son](https://www.bbc.co.uk/news/articles/cxp8g21j4648o?at_medium=RSS&at_campaign=rss)
+2. [El Salvador president says bodies found in Haiti are not those of hostages](https://www.bbc.co.uk/news/articles/c8ly097zw1xwo?at_medium=RSS&at_campaign=rss)
+3. [More than 1,300 arrested as clashes follow another day of mass protests across France](https://www.bbc.co.uk/news/articles/c95ynd587ynzo?at_medium=RSS&at_campaign=rss)
+4. [Elon Musk Says Ukraine Violated Starlink’s Rules](https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html)
+5. [What to Know About Brazil’s Election as Bolsonaro Faces Off With Lula](https://www.nytimes.com/2026/10/25/world/americas/brazil-election-lula-bolsonaro-what-to-know.html)
+6. [Israel’s High-Stakes Election: What to Know](https://www.nytimes.com/2026/10/25/world/middleeast/israels-high-stakes-election-what-to-know.html)
+7. [Musk says SpaceX restricted Ukraine's Starlink connection as service restored](https://www.bbc.co.uk/news/articles/cvx28ljp8n4xo?at_medium=RSS&at_campaign=rss)
+8. [Soldiers guard center of Milan as thousands of protesters march in cities across Europe](https://www.npr.org/2026/10/25/nx-s1-6016126/thousands-of-protesters-across-europe)
+9. [Israel to close West Bank crossings on election day as crackdown escalates](https://www.bbc.co.uk/news/articles/c6y93ylpl5p2o?at_medium=RSS&at_campaign=rss)
+10. [Iranians Face Anxious Wait as Threat of Attack Looms](https://www.nytimes.com/2026/10/24/world/middleeast/iranians-face-anxious-wait-as-threat-of-attack-looms.html)
 <!-- daily-check end -->
