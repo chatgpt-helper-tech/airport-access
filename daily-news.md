@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月25日 15:33:11
+更新时间：2026年10月26日 04:32:49
 
-1. [Gabon says access to social media restored after eight-month ban](https://www.bbc.co.uk/news/articles/c6x2w0ngejneo?at_medium=RSS&at_campaign=rss)
-2. [A Day After Renewed Street Clashes in France, Relief and Anxiety Mix](https://www.nytimes.com/2026/10/25/world/europe/france-protests-macron-lepen.html)
-3. [What to Know About Brazil’s Election as Bolsonaro Faces Off With Lula](https://www.nytimes.com/2026/10/25/world/americas/brazil-election-lula-bolsonaro-what-to-know.html)
-4. [Saudi Arabia Reopens Riyadh Airport After Weeks of Houthi Attacks](https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html)
-5. [The College of Magic turns ordinary kids into confident, top-hat wearing magicians](https://www.npr.org/2026/10/25/g-s1-149089/magic-magicians-south-africa-school-students)
-6. [El Salvador president says bodies found in Haiti are not those of hostages](https://www.bbc.co.uk/news/articles/c8ly097zw1xwo?at_medium=RSS&at_campaign=rss)
-7. [More than 1,300 arrested as clashes follow another day of mass protests across France](https://www.bbc.co.uk/news/articles/c95ynd587ynzo?at_medium=RSS&at_campaign=rss)
-8. [Elon Musk Says Ukraine Violated Starlink’s Rules](https://www.nytimes.com/2026/10/24/world/europe/ukraine-starshield-drone-speed.html)
-9. [Israel’s High-Stakes Election: What to Know](https://www.nytimes.com/2026/10/25/world/middleeast/israels-high-stakes-election-what-to-know.html)
-10. [Musk says SpaceX restricted Ukraine's Starlink connection as service restored](https://www.bbc.co.uk/news/articles/cvx28ljp8n4xo?at_medium=RSS&at_campaign=rss)
+1. [Brazil Live Updates: Lula Wins Re-Election as Bolsonaro Rejects Result](https://www.nytimes.com/live/2026/10/25/world/brazil-election)
+2. [Venezuelan opposition leader María Machado returns after months in exile](https://www.bbc.co.uk/news/articles/cq8ez592pp0eo?at_medium=RSS&at_campaign=rss)
+3. [Aleksandar Vucic Concedes Defeat in Serbian Election](https://www.nytimes.com/2026/10/25/world/europe/serbia-vucic-election-defeat.html)
+4. [Elation across Serbia after veteran ruler Vučić concedes to student-led protest movement](https://www.bbc.co.uk/news/articles/cw5yn3xlprpmo?at_medium=RSS&at_campaign=rss)
+5. [Brazil's left-wing President Lula elected for fourth term](https://www.npr.org/2026/10/25/nx-s1-6016299/brazil-lula-bolsonaro-election)
+6. [María Corina Machado Returns to Venezuela](https://www.nytimes.com/2026/10/25/world/americas/machado-venezuela-return.html)
+7. [Deeply divided Israel braces for pivotal election](https://www.bbc.co.uk/news/articles/ckpdgy6pl7xlo?at_medium=RSS&at_campaign=rss)
+8. [Saudi Arabia Reopens Riyadh Airport Even as Houthis Threaten Further Strikes](https://www.nytimes.com/2026/10/25/world/middleeast/saudi-arabia-riyadh-airport-reopens.html)
+9. [U.S. influence in Latin America at stake in runoff election in Brazil](https://www.npr.org/2026/10/25/nx-s1-6011223/u-s-influence-in-latin-america-at-stake-in-runoff-election-in-brazil)
+10. [This center-right former general could unseat Netanyahu as Prime Minister in Israel](https://www.npr.org/2026/10/25/nx-s1-6011185/this-center-right-former-general-could-unseat-netanyahu-as-prime-minister-in-israel)
 <!-- daily-check end -->
