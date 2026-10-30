@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月29日 14:35:51
+更新时间：2026年10月30日 05:32:42
 
-1. [Haiti Postpones Elections as Gang Violence Runs Rampant](https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-violence.html)
-2. [Russian drone attack on Ukrainian train station kills at least 14, officials say](https://www.bbc.co.uk/news/articles/c9p8gdlz1p2ko?at_medium=RSS&at_campaign=rss)
-3. [Suspect in France Shootings Said He Targeted Muslims and Africans, Prosecutor Says](https://www.nytimes.com/2026/10/29/world/europe/france-shootings-suspect.html)
-4. [Netanyahu's bloc leading Israel election but short of majority, partial results show](https://www.bbc.co.uk/news/articles/cmdx3knq1xexo?at_medium=RSS&at_campaign=rss)
-5. [Rock collapse kills two in Turkey's Cappadocia, local media reports](https://www.bbc.co.uk/news/articles/cknv08nvzld4o?at_medium=RSS&at_campaign=rss)
-6. [Philippine police obtain warrant to search Thomas Markle's devices](https://www.bbc.co.uk/news/articles/cm0j06y3pn75o?at_medium=RSS&at_campaign=rss)
-7. [Record number of purges as Xi emphasises 'party discipline' at China political gathering](https://www.bbc.co.uk/news/articles/cq5ynw94k7kzo?at_medium=RSS&at_campaign=rss)
-8. [China Confirms Expulsion of 33 Officials, as Xi’s Purge Deepens](https://www.nytimes.com/2026/10/29/world/asia/china-communist-party-purges.html)
-9. [With No Clear Winner, How Could Israel Get a Prime Minister?](https://www.nytimes.com/2026/10/29/world/middleeast/israel-election-coalition-scenarios.html)
-10. [Carney to push for closer ties at Canada-EU summit in Montreal](https://www.bbc.co.uk/news/articles/cq8ezj7jylrzo?at_medium=RSS&at_campaign=rss)
+1. [China Is Not Happy About Fan-made A.I. Videos of Sun Wukong and Lin Daiyu](https://www.nytimes.com/2026/10/29/world/asia/china-ai-videos-sun-wukong-lin-daiyu.html)
+2. [Israeli opposition accuses Netanyahu of trying to 'delegitimise' election](https://www.bbc.co.uk/news/articles/ckdd8qdl9e0eo?at_medium=RSS&at_campaign=rss)
+3. ['The city is alive': A brief peace in Kherson, but residents fear what comes next](https://www.bbc.co.uk/news/articles/ck1l393pyrylo?at_medium=RSS&at_campaign=rss)
+4. [What killed 500-plus penguins? How scientists solved the mystery](https://www.npr.org/2026/10/29/nx-s1-6020451/avian-flu-penguins-pathogen-antarctica-cholera)
+5. [Trump and His Aides Helped Bolsonaro Flee Brazil and Enter U.S.](https://www.nytimes.com/2026/10/29/world/americas/flavio-bolsonaro-trump-brazil-us.html)
+6. [U.S. Hits Rwanda With New Sanctions Over a Conflict Trump Declared ‘Ended’](https://www.nytimes.com/2026/10/29/world/africa/rwanda-sanctions-m23-congo.html)
+7. [EU chief lays out vision for new Canada partnership at Montreal summit](https://www.bbc.co.uk/news/articles/cq8ezj7jylrzo?at_medium=RSS&at_campaign=rss)
+8. [US and Japan agree to establish a Japanese facility for joint missile production](https://www.npr.org/2026/10/29/g-s1-150666/us-and-japan-agree-to-establish-a-japanese-facility-for-joint-missile-production)
+9. [China elevates a military general to the Politburo and seeks to strengthen party discipline](https://www.npr.org/2026/10/29/g-s1-150645/china-elevates-a-military-general-to-the-politburo-and-seeks-to-strengthen-party-discipline)
+10. [Haiti Postpones Elections as Gang Violence Runs Rampant](https://www.nytimes.com/2026/10/29/world/americas/haiti-elections-postponed-violence.html)
 <!-- daily-check end -->
