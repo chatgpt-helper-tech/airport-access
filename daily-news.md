@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年10月30日 14:32:42
+更新时间：2026年10月31日 06:36:46
 
-1. [US inmate Christa Pike says she woke up 'confused and in pain' after failed execution](https://www.bbc.co.uk/news/articles/ck62ydn7dj9eo?at_medium=RSS&at_campaign=rss)
-2. [Novaya Gazeta, Fiercely Independent Russian News Outlet, Says It Will Shut Down](https://www.nytimes.com/2026/10/30/world/europe/russia-novaya-gazeta-newspaper.html)
-3. [Police Investigate Former Prince Andrew and Epstein’s Time at Balmoral, Royal Estate in Scotland](https://www.nytimes.com/2026/10/30/world/europe/andrew-epstein-scotland-police-investigation-uk-balmoral.html)
-4. [Alaska Senate candidate denies knowing about alleged plot to put two Dan Sullivans on ballot](https://www.bbc.co.uk/news/articles/cmwyq2gg1yzzo?at_medium=RSS&at_campaign=rss)
-5. [Ukrainians Are Fighting Russians Inside Underground Gas Pipes. I Went in One.](https://www.nytimes.com/2026/10/30/world/europe/ukraine-russia-natural-gas-pipes.html)
-6. [Spain transport minister says he won't resign over high-speed rail disaster](https://www.bbc.co.uk/news/articles/c6zxj2e5qlxxo?at_medium=RSS&at_campaign=rss)
-7. [Blockchain intelligence firms link North Korea to $6.3B hack on Binance](https://www.npr.org/2026/10/30/g-s1-150902/blockchain-intelligence-firms-link-north-korea-to-6-3b-hack-on-binance)
-8. [Residents leave devastated Russian-occupied Oleshky as evacuation corridor opens](https://www.bbc.co.uk/news/articles/c60me298k1yeo?at_medium=RSS&at_campaign=rss)
-9. [Prominent Russian newspaper shuts down under pressure from authorities](https://www.bbc.co.uk/news/articles/cmewepdr109do?at_medium=RSS&at_campaign=rss)
-10. [Alaska's Senate race faces claims of spoiler candidate. And, Hegseth ousts Army general](https://www.npr.org/2026/10/30/g-s1-150889/up-first-newsletter-midterm-elections-iran-war-veteran-affairs-loans)
+1. [Spain train disaster clouds Sánchez chances of re-election](https://www.bbc.co.uk/news/articles/cmeweppr990qo?at_medium=RSS&at_campaign=rss)
+2. [Liu Yandong, Rare Woman Among China’s Political Elite, Dies at 80](https://www.nytimes.com/2026/10/31/world/asia/liu-yandong-dead.html)
+3. [Will Digging Up Vietnam’s War Dead Heal Old Wounds or Reopen Them?](https://www.nytimes.com/2026/10/31/world/asia/vietnam-missing-war-dead.html)
+4. [Britain’s Prime Minister Says He’s Open to a Formal Apology for Slavery](https://www.nytimes.com/2026/10/30/world/europe/britain-burnham-charles-apology-slavery.html)
+5. [Why North Korea's 'elite' hackers are the prime suspect in major Binance hack](https://www.bbc.co.uk/news/articles/ck9dz3v7z7v3o?at_medium=RSS&at_campaign=rss)
+6. [Global nature talks reach deal but money remains an issue](https://www.bbc.co.uk/news/articles/cw1l32qyj8pqo?at_medium=RSS&at_campaign=rss)
+7. [Police deployed during stand-off over control of top Poland court](https://www.bbc.co.uk/news/articles/crz9824d5e88o?at_medium=RSS&at_campaign=rss)
+8. [Could El Salvador’s Bukele Be Haiti’s Savior?](https://www.nytimes.com/2026/10/30/world/americas/el-salvador-haiti-soldiers-bukele.html)
+9. [US approves sale of 500 Patriot missiles to Ukraine](https://www.bbc.co.uk/news/articles/c3vgxznlx7jzo?at_medium=RSS&at_campaign=rss)
+10. [Traffic Control Errors Caused Spain’s Deadly Train Crash, Official Says](https://www.nytimes.com/2026/10/30/world/europe/spain-crash-contoller-errors.html)
 <!-- daily-check end -->
