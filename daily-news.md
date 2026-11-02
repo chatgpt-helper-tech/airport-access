@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月2日 07:33:47
+更新时间：2026年11月2日 13:39:18
 
-1. [Nine killed as small jet crashes on Florida street](https://www.bbc.co.uk/news/articles/cm369yy7lw73o?at_medium=RSS&at_campaign=rss)
-2. [UN's peacekeeping mission in disputed Western Sahara ends after 35 years](https://www.npr.org/2026/11/02/nx-s1-6026050/uns-peacekeeping-western-sahara-ends)
-3. [How a Democrat in Michigan rocked the party days before the US midterms](https://www.bbc.co.uk/news/videos/cqvgjljj74n8o?at_medium=RSS&at_campaign=rss)
-4. [Trump makes fevered campaign push in final weekend before election](https://www.bbc.co.uk/news/articles/c3j47gjx29vro?at_medium=RSS&at_campaign=rss)
-5. [China state broadcaster pulls La Liga matches following Mbappé joke](https://www.bbc.co.uk/news/articles/cq78pypg0800o?at_medium=RSS&at_campaign=rss)
-6. [Binance users withdraw $3.6bn after largest-ever crypto hack](https://www.bbc.co.uk/news/articles/cwj34gdmnly4o?at_medium=RSS&at_campaign=rss)
-7. [He’s the Top Snake Catcher, and Business Is Booming. There’s Just One Problem.](https://www.nytimes.com/2026/11/01/world/asia/snake-catcher-bangkok-thailand.html)
-8. [France launches attempted murder investigation after petrol bomb thrown at police](https://www.bbc.co.uk/news/articles/cwvg05z184j0o?at_medium=RSS&at_campaign=rss)
-9. [This legendary board game could take decades to complete](https://www.npr.org/2026/11/01/nx-s1-6025438/this-legendary-board-game-could-take-decades-to-complete)
-10. [Gulf region on edge as Qatar leads talks with Iran to stave off new U.S. attacks](https://www.npr.org/2026/11/01/nx-s1-6023237/gulf-leaders-meet-in-qatar-in-effort-to-stave-off-new-escalation-in-u-s-and-iran-war)
+1. [Shop freezers in six European countries hit by suspected cyber-attack](https://www.bbc.co.uk/news/articles/cq1kd1nee80eo?at_medium=RSS&at_campaign=rss)
+2. [Fake nuclear warnings issued after Ukrainian and Russian air alert apps hacked](https://www.bbc.co.uk/news/articles/c51kdy1ew7zvo?at_medium=RSS&at_campaign=rss)
+3. [Ryanair says it may freeze workers' pay and raise airfares](https://www.bbc.co.uk/news/articles/cr0qkve1x224o?at_medium=RSS&at_campaign=rss)
+4. [Haley Stevens backs Mike Rogers. And, Gulf states brace for potential attack on Iran](https://www.npr.org/2026/11/02/g-s1-151215/up-first-newsletter-michigan-senate-iran-war-supreme-court-colorado-catholic-church)
+5. [Netanyahu and Eisenkot Seek Shot to Be Israel’s Premier](https://www.nytimes.com/2026/11/02/world/middleeast/israel-election-prime-minister.html)
+6. [Uganda begins withdrawing troops from Somalia after 20 years](https://www.bbc.co.uk/news/articles/c8zxlqxwed4do?at_medium=RSS&at_campaign=rss)
+7. [Up in the Clouds With the Pope, It’s Still Commercial](https://www.nytimes.com/2026/11/02/world/europe/pope-plane-shepherd-one-flights.html)
+8. [Five arrested after South African farmer shot and tortured](https://www.bbc.co.uk/news/articles/cv4g13z0px8yo?at_medium=RSS&at_campaign=rss)
+9. [King Charles Meets Both Joy and Criticism on Caribbean Tour](https://www.nytimes.com/2026/11/02/world/europe/king-charles-caribbean-slavery-commonwealth.html)
+10. [Hundreds evacuate city during temporary ceasefire between Russia and Ukraine](https://www.npr.org/2026/11/02/nx-s1-6022261/hundreds-evacuate-city-during-temporary-ceasefire-between-russia-and-ukraine)
 <!-- daily-check end -->
