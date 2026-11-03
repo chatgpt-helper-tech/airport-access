@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月3日 08:40:05
+更新时间：2026年11月3日 15:40:03
 
-1. [Russian bombing kills 29 people at Ukraine aid centre, Kyiv says](https://www.bbc.co.uk/news/articles/cjy56dndlyz0o?at_medium=RSS&at_campaign=rss)
-2. [Asian Cup postponed in wake of attacks on Saudi Arabia](https://www.bbc.co.uk/sport/football/articles/c6y0e79yjg44o?at_medium=RSS&at_campaign=rss)
-3. [Americans head to the polls for elections that could define Trump's closing chapter](https://www.bbc.co.uk/news/articles/cq2d6k4r5n9ro?at_medium=RSS&at_campaign=rss)
-4. [US strikes Iran ahead of midterm elections](https://www.bbc.co.uk/news/articles/cx240mrm3g8vo?at_medium=RSS&at_campaign=rss)
-5. [Supreme Court rejects Trump's request to stop California counting disputed votes](https://www.bbc.co.uk/news/articles/cm5ynekkn5qko?at_medium=RSS&at_campaign=rss)
-6. [Plane may have broken apart ahead of deadly Florida jet crash, say investigators](https://www.bbc.co.uk/news/articles/cm369yy7lw73o?at_medium=RSS&at_campaign=rss)
-7. [Thousands of European troops to rehearse Ukraine deployment in event of peace](https://www.bbc.co.uk/news/articles/cm3wv085ne6po?at_medium=RSS&at_campaign=rss)
-8. [Up in the Clouds With the Pope, It’s Still Commercial](https://www.nytimes.com/2026/11/02/world/europe/pope-plane-shepherd-one-flights.html)
-9. [Trump Removes South Africa From the African Growth and Opportunity Act Trade Program](https://www.nytimes.com/2026/11/02/world/africa/trump-south-africa-trade-program-agoa.html)
-10. [Russian Strike on Ukraine Humanitarian Hub Kills Dozens](https://www.nytimes.com/2026/11/02/world/europe/russian-strike-zaporizhzhia-ukraine.html)
+1. [King Charles Says U.K.’s Role in Slave Trade ‘Fills My Heart With Horror’](https://www.nytimes.com/2026/11/03/world/europe/king-charles-speech-uk-slave-trade-antigua.html)
+2. [Libya's top religious authority rules against wearing Nike clothes](https://www.bbc.co.uk/news/articles/c5djv0p0re2no?at_medium=RSS&at_campaign=rss)
+3. [Indian navy rescues 20 crew from Iranian fishing boat hijacked off Somalia](https://www.npr.org/2026/11/03/g-s1-151468/indian-navy-rescues-20-crew-from-iranian-fishing-boat-hijacked-off-somalia)
+4. [Why Trump Often Mentioned Iran in the Midterm Campaign](https://www.nytimes.com/2026/11/03/world/middleeast/trump-iran-war-election-strategy.html)
+5. [Europe on alert after supermarket freezers hit by cyber-attacks in 10 countries](https://www.bbc.co.uk/news/articles/cwy8lm1m59mvo?at_medium=RSS&at_campaign=rss)
+6. [US urges Venezuela to release remaining political prisoners](https://www.bbc.co.uk/news/articles/cxg5jln586pno?at_medium=RSS&at_campaign=rss)
+7. [Indian tourist killed after two helicopters collide near Everest base camp](https://www.bbc.co.uk/news/articles/cmqlnx7z1549o?at_medium=RSS&at_campaign=rss)
+8. [Control of Congress is at stake today. And, judge to consider motion in Clancy case](https://www.npr.org/2026/11/03/g-s1-151445/up-first-newsletter-midterms-election-day-iran-war-lindsay-clancy)
+9. [US strikes Iranian island ahead of midterm elections](https://www.bbc.co.uk/news/articles/cx240mrm3g8vo?at_medium=RSS&at_campaign=rss)
+10. [Death toll hits 29 after Russian strike on Ukrainian aid site, with 48 still missing](https://www.npr.org/2026/11/03/g-s1-151439/russia-ukraine-war)
 <!-- daily-check end -->
