@@ -1,9 +1,9 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月3日 02:36:20
+更新时间：2026年11月3日 03:40:02
 
-1. [Man and boy arrested after allegedly attacking One Nation volunteer with baseball bat in Australia](https://www.bbc.co.uk/news/articles/cwly3jd27m9xo?at_medium=RSS&at_campaign=rss)
+1. [Supreme Court rejects Trump's request to stop California counting disputed votes](https://www.bbc.co.uk/news/articles/cm5ynekkn5qko?at_medium=RSS&at_campaign=rss)
 2. [Russian bombing kills 26 people at Ukraine aid centre, Kyiv says](https://www.bbc.co.uk/news/articles/cjy56dndlyz0o?at_medium=RSS&at_campaign=rss)
 3. [North Korea denies being behind record $6.3bn Binance hack](https://www.bbc.co.uk/news/articles/c6rey4v53exgo?at_medium=RSS&at_campaign=rss)
 4. [Plane may have broken apart ahead of deadly Florida jet crash, say investigators](https://www.bbc.co.uk/news/articles/cm369yy7lw73o?at_medium=RSS&at_campaign=rss)
