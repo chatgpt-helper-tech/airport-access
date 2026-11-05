@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月5日 08:35:08
+更新时间：2026年11月5日 11:30:08
 
-1. [The New Zealand Election That Could ‘Flip the Table’](https://www.nytimes.com/2026/11/05/world/australia/new-zealand-election-polls.html)
-2. [Joshua Wong, face of Hong Kong's pro-democracy protests, jailed for 10 years](https://www.bbc.co.uk/news/articles/cwp9g3rlp8jlo?at_medium=RSS&at_campaign=rss)
-3. [Italian chef fired after refusing to put pineapple on pizza](https://www.bbc.co.uk/news/articles/cx4g1qy6gq9mo?at_medium=RSS&at_campaign=rss)
-4. [Bob Dylan comes knockin' on pope's door as Leo welcomes legend to Vatican](https://www.npr.org/2026/11/05/g-s1-152035/vatican-pope-bob-dylan)
-5. [Joshua Wong, Hong Kong Democracy Activist, Is Sentenced to 10 Years in Prison](https://www.nytimes.com/2026/11/04/world/asia/joshua-wong-hong-kong-sentenced.html)
-6. [Hong Kong activist Joshua Wong sentenced to 10 years in prison](https://www.npr.org/2026/11/05/g-s1-152032/hong-kong-activist-wong-sentenced)
-7. [First, France Had Riots and Protests. Now It’s Bracing for a General Strike.](https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html)
-8. [Voters Are Turning Out in Droves to Cut Autocrats Down to Size](https://www.nytimes.com/2026/11/05/world/europe/voters-are-turning-out-in-droves-to-cut-autocrats-down-to-size.html)
-9. [Vance walks Trump tightrope with scathing election critique blaming Iran war](https://www.bbc.co.uk/news/articles/crz98zqkz7z0o?at_medium=RSS&at_campaign=rss)
-10. [Pope Leo hosts Bob Dylan at official residence in Rome](https://www.bbc.co.uk/news/articles/cm0e035n13ylo?at_medium=RSS&at_campaign=rss)
+1. [Ronaldo retires from Portugal duty](https://www.bbc.co.uk/sport/football/articles/cme8rxx2e1w9o?at_medium=RSS&at_campaign=rss)
+2. [Netanyahu Alleges Election Fraud in Connection With Arab Turnout](https://www.nytimes.com/2026/11/05/world/middleeast/israel-election-netanyahu-trump.html)
+3. [Here’s Who Is Meeting Israel’s President to Recommend a Prime Minister](https://www.nytimes.com/2026/11/05/world/middleeast/israel-herzog-prime-minister.html)
+4. [France gears up for strikes and protests as unions promise national mobilisation](https://www.bbc.co.uk/news/articles/ckx2qzv835pgo?at_medium=RSS&at_campaign=rss)
+5. [At the Root of K-Pop’s Controversies, a Restrictive Business Model](https://www.nytimes.com/2026/11/05/world/asia/how-kpop-works-contracts.html)
+6. [First, France Had Riots and Protests. Now It’s Bracing for a General Strike.](https://www.nytimes.com/2026/11/05/world/europe/france-protests-general-strike.html)
+7. [India's costliest film retells a beloved Hindu epic - but divides critics](https://www.bbc.co.uk/news/articles/cm93zv62v1n7o?at_medium=RSS&at_campaign=rss)
+8. [The New Zealand Election That Could ‘Flip the Table’](https://www.nytimes.com/2026/11/05/world/australia/new-zealand-election-polls.html)
+9. [Joshua Wong, face of Hong Kong's pro-democracy protests, jailed for 10 years](https://www.bbc.co.uk/news/articles/cwp9g3rlp8jlo?at_medium=RSS&at_campaign=rss)
+10. [Bob Dylan comes knockin' on pope's door as Leo welcomes legend to Vatican](https://www.npr.org/2026/11/05/g-s1-152035/vatican-pope-bob-dylan)
 <!-- daily-check end -->
