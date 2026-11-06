@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月6日 07:32:28
+更新时间：2026年11月6日 12:38:35
 
-1. [Macau jails pro-democracy campaigner in city's first national security case](https://www.bbc.co.uk/news/articles/cmdx33v9vvr2o?at_medium=RSS&at_campaign=rss)
-2. [Trump signs order preventing future presidents from changing Oval Office](https://www.bbc.co.uk/news/articles/cmy0eeg101djo?at_medium=RSS&at_campaign=rss)
-3. [White House denies Hegseth and Rubio to leave jobs after Republican election losses](https://www.bbc.co.uk/news/articles/cqg7xxg4jdv5o?at_medium=RSS&at_campaign=rss)
-4. [Pope begins lengthy trip to Latin America weeks after lung cancer surgery](https://www.bbc.co.uk/news/articles/cqn06j0y61k6o?at_medium=RSS&at_campaign=rss)
-5. [California governor commutes sentences for state's 548 death row inmates](https://www.bbc.co.uk/news/articles/cqrkyyd2j8mvo?at_medium=RSS&at_campaign=rss)
-6. [How Melania Trump Became a Dark-Horse Diplomat on Ukraine](https://www.nytimes.com/2026/11/05/world/europe/melania-trump-oleshky-ukraine-ceasefire.html)
-7. [Bolsonaro’s Escape From Brazil Was Aided by Milei Adviser at Argentine Airport](https://www.nytimes.com/2026/11/05/world/americas/bolsonaro-escape-brazil-milei-adviser-argentina.html)
-8. [Lana Nusseibeh’s U.N. Bid Collides With U.A.E.’s Role in Sudan](https://www.nytimes.com/2026/11/05/world/africa/lana-nusseibeh-united-nations-uae-sudan.html)
-9. [How Did Flávio Bolsonaro Flee Brazil? ‘I’ll Take That to the Grave,’ He Says](https://www.nytimes.com/2026/11/05/world/americas/flavio-bolsonaro-florida-brazil.html)
-10. [Bomb Threats Disrupt European Flights and Rattle Passengers](https://www.nytimes.com/2026/11/05/world/europe/bomb-threats-airline-passengers.html)
+1. [A Trump-Putin-Xi Summit? That Might Be Awkward for One of Them.](https://www.nytimes.com/2026/11/06/world/asia/china-trump-putin-xi-summit.html)
+2. [Two dead after bus crashes in France, officials say](https://www.bbc.co.uk/news/articles/cmly00l4p3lwo?at_medium=RSS&at_campaign=rss)
+3. [Judge halts construction of Trump's arch. And, Labor Department to release jobs report](https://www.npr.org/2026/11/06/g-s1-152213/up-first-newsletter-job-market-trump-arch-school-enrollment-harmeet-dhillon)
+4. [Kenyan doomsday cult leader given life sentence for murdering 191 people](https://www.bbc.co.uk/news/articles/cm5yne5984l0o?at_medium=RSS&at_campaign=rss)
+5. [Tanzanian opposition leader found guilty of inciting unrest but acquitted of treason](https://www.bbc.co.uk/news/articles/ckp8g4pm0y4lo?at_medium=RSS&at_campaign=rss)
+6. [Saudi-Led Forces Bombed Yemeni Home, Killing Nine Family Members, Relatives Say](https://www.nytimes.com/2026/11/06/world/middleeast/saudi-arabia-bombing-yemen-civilians-houthi-war.html)
+7. [Guarded Optimism, and Some Jokes, in Ukraine Over Trump’s Midterm Wipeout](https://www.nytimes.com/2026/11/06/world/europe/russia-ukraine-trump-midterms.html)
+8. [European Countries Push, Again, To Deport Migrants to Rwanda](https://www.nytimes.com/2026/11/06/world/europe/europe-migrants-rwanda.html)
+9. [Alberta’s Librarians Brace for a New Era of ‘Book Bans’](https://www.nytimes.com/2026/11/06/world/canada/alberta-book-ban-public-libraries.html)
+10. [Europe Still Sees Trump As Powerful, Especially in Foreign Policy](https://www.nytimes.com/2026/11/06/world/europe/europe-trump-midterms.html)
 <!-- daily-check end -->
