@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月11日 15:30:11
+更新时间：2026年11月12日 01:32:41
 
-1. [Lots of Competition to Catholicism in Peru as Pope Returns for Visit](https://www.nytimes.com/2026/11/11/world/americas/pope-leo-peru-evangelicals.html)
-2. [Behind the Trump-Xi Bonhomie, a Fierce Spy War Rages](https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html)
-3. [Kidnapper, 74, escapes from house arrest in Argentina by abseiling from balcony](https://www.bbc.co.uk/news/articles/c933gn6710lyo?at_medium=RSS&at_campaign=rss)
-4. [Three Iran-backed suspects plotted attacks including RAF Fairford incident, US says](https://www.bbc.co.uk/news/articles/c3rryrryk59zo?at_medium=RSS&at_campaign=rss)
-5. [Spain sees widespread disruption in first general strike for 14 years](https://www.bbc.co.uk/news/articles/cwvg25nypmrvo?at_medium=RSS&at_campaign=rss)
-6. [Russia and Ukraine agree to a large exchange of prisoners of war, officials say](https://www.npr.org/2026/11/11/g-s1-152954/russia-ukraine-war-talks)
-7. [Four grizzly bears killed in Canada after fatal attack on mother and daughter](https://www.bbc.co.uk/news/articles/cwg5r8zrm11mo?at_medium=RSS&at_campaign=rss)
-8. [Kenya discharges last Ebola patient in major milestone towards virus-free status](https://www.bbc.co.uk/news/articles/cwe9kzv0g0v7o?at_medium=RSS&at_campaign=rss)
-9. [Hundreds of Italian schools hit by threats in suspected bomb hoax](https://www.bbc.co.uk/news/articles/cwz0k79pr8z2o?at_medium=RSS&at_campaign=rss)
-10. [House effectively ends Hegseth impeachment. And, 3 men accused of plotting U.K. attacks](https://www.npr.org/2026/11/11/g-s1-152949/up-first-newsletter-pete-hegseth-jim-jordan-iran-backed-trio-us-bases)
+1. [Democrat Scott Colom seals historic win in Mississippi Senate race](https://www.bbc.co.uk/news/articles/cw7vppyr80eeo?at_medium=RSS&at_campaign=rss)
+2. [New York building collapse kills one person and injures 12](https://www.bbc.co.uk/news/videos/c60rkwjj7x7go?at_medium=RSS&at_campaign=rss)
+3. [Clashes erupt in Barcelona after thousands join Spain general strike](https://www.bbc.co.uk/news/articles/cwvg25nypmrvo?at_medium=RSS&at_campaign=rss)
+4. [Workers in Spain Stage a General Strike for the First Time in 14 Years](https://www.nytimes.com/2026/11/11/world/europe/spain-general-strike.html)
+5. [Nvidia Scandal Unveils a Fierce Spy War Raging Behind Trump and Xi’s Diplomacy](https://www.nytimes.com/2026/11/11/world/asia/china-us-nvidia.html)
+6. [Alexander Darchiev, Russia’s Ambassador to the U.S., Dies at 66](https://www.nytimes.com/2026/11/11/world/europe/russian-ambassador-darchiev-dead.html)
+7. [Famed ship SS United States to be sunk off coast of Florida](https://www.bbc.co.uk/news/articles/c3x298n87rn2o?at_medium=RSS&at_campaign=rss)
+8. [Schools in Italy, Scotland and Northern Ireland hit by threats in suspected bomb hoax](https://www.bbc.co.uk/news/articles/cwz0k79pr8z2o?at_medium=RSS&at_campaign=rss)
+9. [Russia-Ukraine talks turn to post-war security but end without breakthrough](https://www.bbc.co.uk/news/articles/ck792we7zrz4o?at_medium=RSS&at_campaign=rss)
+10. [U.S. Efforts to Tighten Blockade of Iran Rely on Reluctant Neighbors](https://www.nytimes.com/2026/11/11/world/middleeast/us-blockade-iran-taskforce-iron-gate.html)
 <!-- daily-check end -->
