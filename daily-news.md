@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月12日 15:30:31
+更新时间：2026年11月13日 01:33:19
 
-1. [Missing money leaves Ebola staff unpaid while virus spreads, medical charity warns](https://www.bbc.co.uk/news/articles/cx98757ymm6zo?at_medium=RSS&at_campaign=rss)
-2. [Ukraine says military Starlink disrupted again as US envoys meet Putin in Moscow](https://www.bbc.co.uk/news/articles/cwrkgmymk55zo?at_medium=RSS&at_campaign=rss)
-3. [Israel’s Arrest of Journalist Abed Abu Shehadeh Raises Concerns](https://www.nytimes.com/2026/11/12/world/middleeast/israel-shin-bet-shehadeh-netanyahu.html)
-4. [In China’s Spy Operations, Romance Can Be a Long Game](https://www.nytimes.com/2026/11/12/world/asia/china-spy-espionage-romance.html)
-5. [Israeli strike on Gaza hospital kills six Palestinians, health ministry says](https://www.bbc.co.uk/news/articles/ckzd9p7e4eqeo?at_medium=RSS&at_campaign=rss)
-6. [Indonesia's VP resigns as his eligibility and academic credentials are questioned](https://www.npr.org/2026/11/12/g-s1-153190/indonesias-vp-resigns-as-his-eligibility-and-academic-credentials-are-questioned)
-7. ['We've got to run': Inside ruined Ukraine power plant under constant drone threat](https://www.bbc.co.uk/news/videos/cm93rp3gxn6qo?at_medium=RSS&at_campaign=rss)
-8. [Democrat Scott Colom makes history as Mississippi's first black senator since 19th Century](https://www.bbc.co.uk/news/articles/cw7vppyr80eeo?at_medium=RSS&at_campaign=rss)
+1. [Australian footballers will not be charged after hotel incident, police say](https://www.bbc.co.uk/news/articles/ckregjwr7njqo?at_medium=RSS&at_campaign=rss)
+2. [Neither war nor peace in Tigray - is Ethiopia's latest conflict really over?](https://www.bbc.co.uk/news/articles/cm3egjgvp794o?at_medium=RSS&at_campaign=rss)
+3. [Tourists Brave a Muddy Jungle Trek to See a Famed World War II Wreck](https://www.nytimes.com/2026/11/12/world/asia/yamamoto-pearl-harbor-plane-bougainville-tourism.html)
+4. [Indonesia’s Vice President, Gibran, Resigns](https://www.nytimes.com/2026/11/12/world/asia/indonesia-gibran-vice-president-resign.html)
+5. [Scandal-hit Nvidia CEO Jensen Huang quits, plunging AI chipmaking giant into turmoil](https://www.bbc.co.uk/news/articles/cmq5vd1wdgz6o?at_medium=RSS&at_campaign=rss)
+6. [In Moscow, Witkoff and Kushner Ask Putin to Include Europe in Peace Talks](https://www.nytimes.com/2026/11/12/world/europe/russia-ukraine-witkoff-kushner.html)
+7. [US envoys meet Zelensky in Dublin after talks with Putin in Moscow](https://www.bbc.co.uk/news/articles/cwrkgmymk55zo?at_medium=RSS&at_campaign=rss)
+8. [Russian warship hit by Ukrainian drone in Gulf of Finland](https://www.bbc.co.uk/news/articles/cmn0d33zz34zo?at_medium=RSS&at_campaign=rss)
 9. [Suspected bomb hoax threats force fresh evacuations of Italian schools](https://www.bbc.co.uk/news/articles/cr894w453e90o?at_medium=RSS&at_campaign=rss)
-10. [Colom wins Mississippi Senate race. And, White House warns Dems over future probes](https://www.npr.org/2026/11/12/g-s1-153171/up-first-newsletter-scott-colom-trump-democrats-ukraine-russia)
+10. [Hegseth awards medal to war memorial guard who reprimanded him and group](https://www.bbc.co.uk/news/articles/cmvg2r3dq7xno?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
