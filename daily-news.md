@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月15日 04:37:29
+更新时间：2026年11月15日 15:39:31
 
-1. [Judge temporarily blocks Trump from closing Washington DC golf course for renovation](https://www.bbc.co.uk/news/articles/c6j9mn7l14y0o?at_medium=RSS&at_campaign=rss)
-2. [Pope Leo speaks of community 'suffering' on visit to remote Andes town](https://www.bbc.co.uk/news/articles/cr4gnz0lv2vlo?at_medium=RSS&at_campaign=rss)
-3. [US has floated Ukraine ceding Donbas for Nato membership, Zelensky says](https://www.bbc.co.uk/news/articles/cwvg2l312ylqo?at_medium=RSS&at_campaign=rss)
-4. ['Can you believe it?': SpaceX catches part of its Starship rocket on return to Earth](https://www.bbc.co.uk/news/videos/cwlym2gy3y3eo?at_medium=RSS&at_campaign=rss)
-5. [‘Get Focused on London’: How Iran’s Agents Attacked European Targets](https://www.nytimes.com/2026/11/13/world/europe/iran-attacks-europe-britain.html)
-6. [Copper wire upgrade caused nationwide flight suspension, US transport secretary says](https://www.bbc.co.uk/news/articles/c6wy9lynq4qno?at_medium=RSS&at_campaign=rss)
-7. [A ‘Generational Clash’ Is Fueling Europe’s Protests](https://www.nytimes.com/2026/11/14/world/europe/student-protests-pensions-generations.html)
-8. [Italy fines Meta €805m over accessing users' photos](https://www.bbc.co.uk/news/articles/cwn83gxemk35o?at_medium=RSS&at_campaign=rss)
-9. [Philippines wins first Eurovision Song Contest Asia](https://www.bbc.co.uk/news/articles/cqrlgnx9dx6eo?at_medium=RSS&at_campaign=rss)
-10. [Sotheby's auction of $180m Van Gogh challenged over claims it was 'sold under duress'](https://www.bbc.co.uk/news/articles/cmwy05gg75lvo?at_medium=RSS&at_campaign=rss)
+1. [Suspected China spy linked to Nvidia's ex-boss left in 2025, Megaspeed says](https://www.bbc.co.uk/news/articles/cmdx1vpprk9vo?at_medium=RSS&at_campaign=rss)
+2. [New Orleans port files $1m lawsuit over 'miracle on the Mississippi' tanker collision](https://www.bbc.co.uk/news/articles/cwe89y2r5j20o?at_medium=RSS&at_campaign=rss)
+3. [Iran targets US military base in Bahrain with drone attack](https://www.bbc.co.uk/news/articles/cqn4e2py48kwo?at_medium=RSS&at_campaign=rss)
+4. [South Korea's top scorer in tax accountancy exam admits cheating](https://www.bbc.co.uk/news/articles/ckvg2ezvpe08o?at_medium=RSS&at_campaign=rss)
+5. [Iran Attacks Bahrain for the Second Time in Days](https://www.nytimes.com/2026/11/15/world/middleeast/bahrain-iran-israel.html)
+6. [Three men sentenced to death in Jordan over fatal church mass shooting](https://www.bbc.co.uk/news/articles/c3rrg9xgqlwpo?at_medium=RSS&at_campaign=rss)
+7. [After Decades of Blood and Mistrust, Doubts Over Who’s to Blame for an Israeli Hostage](https://www.nytimes.com/2026/11/15/world/europe/ron-arad-missing-israel-iran-asgari-hunt.html)
+8. [Fifth Canadian soldier dies from injuries caused by large fire at military base](https://www.bbc.co.uk/news/articles/cmrlgn4x2xw8o?at_medium=RSS&at_campaign=rss)
+9. [Israel kills Hamas commander in strike on Gaza camp, officials say](https://www.bbc.co.uk/news/articles/cqrkg4r6mg7xo?at_medium=RSS&at_campaign=rss)
+10. [Is Italy the Model for Europe’s Future?](https://www.nytimes.com/2026/11/15/world/europe/italy-italianization-europe-horowitz.html)
 <!-- daily-check end -->
