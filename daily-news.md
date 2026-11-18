@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月17日 14:37:36
+更新时间：2026年11月18日 03:32:40
 
-1. [Live Updates: Trump’s Whirlwind Asia Trip Begins in the Philippines](https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit)
-2. [¿Quién es el hombre acusado de asesinar al presidente de Haití?](https://www.nytimes.com/es/2026/11/17/espanol/america-latina/christian-sanon-juicio-haiti-asesinato-presidente.html)
-3. [Ukraine Attacks Kerch Bridge Linking Russia to Occupied Crimea](https://www.nytimes.com/2026/11/17/world/europe/ukraine-kyiv-russia-kerch-bridge-crimea.html)
-4. [These Ukrainians Aren’t in Combat. But They Deal With War Every Day.](https://www.nytimes.com/2026/11/17/world/europe/ukraine-war-civilians.html)
-5. [Palestinian woman, 72, shot dead by Israeli settlers in West Bank, health ministry says](https://www.bbc.co.uk/news/articles/cqrlg377638yo?at_medium=RSS&at_campaign=rss)
-6. [Putin's Crimea bridge partly collapses as Zelensky hails 'unprecedented' attack by Ukraine](https://www.bbc.co.uk/news/articles/cw772jk4rvmxo?at_medium=RSS&at_campaign=rss)
-7. [Trump is in Asia ahead of Xi, Putin summit. And, tech leaders want Huang back at Nvidia](https://www.npr.org/2026/11/17/g-s1-153950/up-first-newsletter-faa-ground-stop-trump-asia-trip-nvidia-lindsay-clancy)
-8. [Gunmen kill Costa Rican journalist who reported on drugs trade](https://www.bbc.co.uk/news/articles/c6ly7g5lx7gyo?at_medium=RSS&at_campaign=rss)
-9. [Nvidia partner Megaspeed being investigated by US government over chip exports](https://www.bbc.co.uk/news/articles/cmn504nq5033o?at_medium=RSS&at_campaign=rss)
-10. [Tracking China’s War of Words Against Japan](https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html)
+1. [Live Updates: Trump Meets Philippine Leader Before Flying to China](https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit)
+2. [Nvidia says it won't reinstate Huang as firm reports bumper results](https://www.bbc.co.uk/news/articles/cm2kl50vkwkdo?at_medium=RSS&at_campaign=rss)
+3. [Tracking China’s Intensifying War of Words Against Japan](https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html)
+4. [Thomas Markle charged over child sex abuse material in Philippines](https://www.bbc.co.uk/news/articles/ckg5ry8m49ggo?at_medium=RSS&at_campaign=rss)
+5. [Xi said China would welcome American students for exchanges. What's the reality?](https://www.npr.org/2026/11/17/nx-s1-6026589/xi-said-china-would-welcome-american-students-for-exchanges-whats-the-reality)
+6. [Putin's Crimean Bridge partly collapses as Zelensky hails 'unprecedented' attack by Ukraine](https://www.bbc.co.uk/news/articles/cw772jk4rvmxo?at_medium=RSS&at_campaign=rss)
+7. [Russian military plane crashes, killing all 19 on board](https://www.bbc.co.uk/news/articles/cw8085rykkmgo?at_medium=RSS&at_campaign=rss)
+8. [US loses measles elimination status after 26 years amid record case numbers](https://www.bbc.co.uk/news/articles/c977p71jx0xxo?at_medium=RSS&at_campaign=rss)
+9. [Congo Ebola Outbreak: How Fear and Mistrust Drive Community Spread](https://www.nytimes.com/2026/11/17/world/africa/congo-ebola-community-transmission.html)
+10. [Palestinian woman, 72, shot dead by Israeli settlers in West Bank, health ministry says](https://www.bbc.co.uk/news/articles/cqrlg377638yo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
