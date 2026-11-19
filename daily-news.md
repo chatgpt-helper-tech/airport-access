@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月18日 10:32:48
+更新时间：2026年11月19日 02:33:28
 
-1. [Democrats win Alaska Senate race two weeks after midterms counting began](https://www.bbc.co.uk/news/articles/cqev3v2ygzlvo?at_medium=RSS&at_campaign=rss)
-2. [Iran-backed militias tortured him, but Iraqi environmentalist refuses to quit](https://www.npr.org/2026/11/18/nx-s1-6043167/iraq-environmentalist-marshes-iran-backed-militia-kidnapped)
-3. [China and the U.S. are still the biggest polluters, but only China is doing better](https://www.npr.org/2026/11/18/nx-s1-6044646/china-and-the-u-s-emissions-cop31-antalya)
-4. [Putin to meet with Trump and Xi after Ukrainian attack on Russian bridge](https://www.npr.org/2026/11/18/nx-s1-6044242/putin-to-meet-with-trump-and-xi-after-ukrainian-attack-on-russian-bridge)
-5. [Tracking China’s Intensifying War of Words Against Japan](https://www.nytimes.com/2026/11/17/world/asia/china-japan-propaganda-xi-takaichi.html)
-6. [Philippines police ask prosecutors to charge Thomas Markle over child sex abuse material](https://www.bbc.co.uk/news/articles/ckg5ry8m49ggo?at_medium=RSS&at_campaign=rss)
-7. [Trump Meets Philippine Leader Before Flying to China](https://www.nytimes.com/live/2026/11/17/world/trump-asean-summit)
-8. [Rubio says US not 'under systemic attack' after series of tech outages](https://www.bbc.co.uk/news/articles/crkgvxxwpwz2o?at_medium=RSS&at_campaign=rss)
-9. [Nvidia says it won't reinstate Huang as it reports soaring sales](https://www.bbc.co.uk/news/articles/cm2kl50vkwkdo?at_medium=RSS&at_campaign=rss)
-10. [As Trump and Xi meet, China's AI dreams face an unexpected hurdle: the Nvidia spy scandal](https://www.bbc.co.uk/news/articles/c5vg23g92rj4o?at_medium=RSS&at_campaign=rss)
+1. [Claude-maker Anthropic poised for stock market debut worth up to $1.5tn](https://www.bbc.co.uk/news/articles/c6742m39xgzxo?at_medium=RSS&at_campaign=rss)
+2. [Elon Musk says record spending on US midterms was 'pretty foolish'](https://www.bbc.co.uk/news/articles/cm9q8j2z3gg8o?at_medium=RSS&at_campaign=rss)
+3. [Crimean Bridge attacked again, Russian official says](https://www.bbc.co.uk/news/articles/cm879dqn3e1jo?at_medium=RSS&at_campaign=rss)
+4. [Trump, Xi and Putin Shake Hands as Leaders Gather in China](https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec)
+5. [Van Gogh painting sells for record $190.4m after row over its Nazi history](https://www.bbc.co.uk/news/articles/c5dj1dkwzvzwo?at_medium=RSS&at_campaign=rss)
+6. [Myanmar faces historic genocide verdict at UN court over Rohingya massacres](https://www.bbc.co.uk/news/articles/c5m2l90ez144o?at_medium=RSS&at_campaign=rss)
+7. [Israeli military launches rare ground operation in Gaza beyond Yellow Line](https://www.bbc.co.uk/news/articles/cw8r7510degno?at_medium=RSS&at_campaign=rss)
+8. [Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion](https://www.nytimes.com/2026/11/18/world/middleeast/israel-gaza-war-ground-operation.html)
+9. [Russia Vows to Rebuild Destroyed Crimea Bridge. It Could Take Years.](https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html)
+10. [Karl Kani dressed hip-hop royalty for decades. Now he's telling his own story](https://www.npr.org/2026/11/18/g-s1-154227/karl-kani-a-life-by-design)
 <!-- daily-check end -->
