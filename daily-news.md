@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月19日 02:33:28
+更新时间：2026年11月20日 01:34:54
 
-1. [Claude-maker Anthropic poised for stock market debut worth up to $1.5tn](https://www.bbc.co.uk/news/articles/c6742m39xgzxo?at_medium=RSS&at_campaign=rss)
-2. [Elon Musk says record spending on US midterms was 'pretty foolish'](https://www.bbc.co.uk/news/articles/cm9q8j2z3gg8o?at_medium=RSS&at_campaign=rss)
-3. [Crimean Bridge attacked again, Russian official says](https://www.bbc.co.uk/news/articles/cm879dqn3e1jo?at_medium=RSS&at_campaign=rss)
-4. [Trump, Xi and Putin Shake Hands as Leaders Gather in China](https://www.nytimes.com/live/2026/11/18/world/trump-china-asia-apec)
-5. [Van Gogh painting sells for record $190.4m after row over its Nazi history](https://www.bbc.co.uk/news/articles/c5dj1dkwzvzwo?at_medium=RSS&at_campaign=rss)
-6. [Myanmar faces historic genocide verdict at UN court over Rohingya massacres](https://www.bbc.co.uk/news/articles/c5m2l90ez144o?at_medium=RSS&at_campaign=rss)
-7. [Israeli military launches rare ground operation in Gaza beyond Yellow Line](https://www.bbc.co.uk/news/articles/cw8r7510degno?at_medium=RSS&at_campaign=rss)
-8. [Israeli Tanks Advance Across Gaza Cease-Fire Line in Rare Incursion](https://www.nytimes.com/2026/11/18/world/middleeast/israel-gaza-war-ground-operation.html)
-9. [Russia Vows to Rebuild Destroyed Crimea Bridge. It Could Take Years.](https://www.nytimes.com/2026/11/18/world/europe/russia-kerch-strait-crimean-bridge.html)
-10. [Karl Kani dressed hip-hop royalty for decades. Now he's telling his own story](https://www.npr.org/2026/11/18/g-s1-154227/karl-kani-a-life-by-design)
+1. [Trump, Xi and Putin Seek to Project Power at Their First Summit](https://www.nytimes.com/live/2026/11/18/world/trump-xi-putin-apec)
+2. [Europe ready for talks with Russia on ending war in Ukraine, leaders say](https://www.bbc.co.uk/news/articles/ckzd9nln5e6go?at_medium=RSS&at_campaign=rss)
+3. [4 British Men Convicted of Sexually Assaulting Joanne Young](https://www.nytimes.com/2026/11/19/world/europe/uk-joanne-young-abuse-conviction.html)
+4. ['I tell my son it's just fireworks': People inside besieged Yemeni city speak to BBC](https://www.bbc.co.uk/news/articles/cx7v2d8q879eo?at_medium=RSS&at_campaign=rss)
+5. [Fiona the hippo dies after swallowing a hat at Cincinnati Zoo](https://www.bbc.co.uk/news/articles/cwz0k3172xzko?at_medium=RSS&at_campaign=rss)
+6. [Anthropic becomes one of world's most valuable public companies in stock market debut](https://www.bbc.co.uk/news/articles/c3x29ggenz12o?at_medium=RSS&at_campaign=rss)
+7. [California targets Nvidia in China AI chip probe](https://www.bbc.co.uk/news/articles/cqn70vxp5p4no?at_medium=RSS&at_campaign=rss)
+8. [Judge finds Thomas Markle mentally fit to stand trial on child abuse charges](https://www.bbc.co.uk/news/articles/crgj35ldz2zxo?at_medium=RSS&at_campaign=rss)
+9. [Myanmar Genocide Ruling Sets Up Court Fight Over Israel and Gaza](https://www.nytimes.com/2026/11/19/world/asia/icj-myanmar-gaza.html)
+10. [Myanmar committed genocide against Rohingya minority, top UN court rules](https://www.bbc.co.uk/news/articles/c804wzp20ddvo?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
