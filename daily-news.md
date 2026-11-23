@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月23日 09:36:24
+更新时间：2026年11月23日 10:37:10
 
-1. [Kenya and DR Congo agree to restore ties after tensions over conflict](https://www.bbc.co.uk/news/articles/cmvg2qnn95vro?at_medium=RSS&at_campaign=rss)
-2. [Burnham to tell MPs 'landmark' EU deal could make next decade 'much better'](https://www.bbc.co.uk/news/articles/cmde1dy82lepo?at_medium=RSS&at_campaign=rss)
-3. [Russian ships hit by Ukrainian drones off Libya coast, Zelensky says](https://www.bbc.co.uk/news/articles/cr894gjz0j0yo?at_medium=RSS&at_campaign=rss)
-4. [Five takeaways from the failed climate talks COP31](https://www.bbc.co.uk/news/articles/cm75237wlp3lo?at_medium=RSS&at_campaign=rss)
-5. [Behind China’s A.I. Anxieties, Fear of a Nuclear Checkmate](https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html)
-6. [Boy, 7, pulled alive from rubble hours after Russian strike on Ukraine, rescuers say](https://www.bbc.co.uk/news/articles/cqdr15l32d3go?at_medium=RSS&at_campaign=rss)
-7. [Longest-ever UN climate talks end with no deal as deep divisions exposed](https://www.bbc.co.uk/news/articles/cqwy06zrd26lo?at_medium=RSS&at_campaign=rss)
-8. [San Francisco is enjoying an AI boom, but worries about a crash are growing](https://www.bbc.co.uk/news/articles/cqe9k09j9jv4o?at_medium=RSS&at_campaign=rss)
-9. [Ukraine war spilling into NATO territory](https://www.npr.org/2026/11/22/nx-s1-6050236/ukraine-war-spilling-into-nato-territory)
-10. [Luxury development planned on land some Albanians say is theirs, not Jared Kushner's](https://www.npr.org/2026/11/22/nx-s1-6012022/luxury-development-planned-on-land-some-albanians-say-is-theirs-not-jared-kushners)
+1. [They Were Too Old to Enlist, but Not to Fight. Meet the Steppe Wolves of Ukraine.](https://www.nytimes.com/2026/11/23/world/europe/ukraine-older-soldiers.html)
+2. [Ukrainian drones hit a Russian warship at a naval base in Libya, Zelenskyy says](https://www.npr.org/2026/11/23/g-s1-155017/ukraine-attack-russian-warship-libya)
+3. [Colombia Marks 10 Years Since FARC Peace Deal: In Photos](https://www.nytimes.com/2026/11/23/world/americas/colombia-farc-peace-deal.html)
+4. [Ukraine Claims Strikes on Russian Ships Near Libya](https://www.nytimes.com/2026/11/23/world/europe/ukraine-libya-russian-ships.html)
+5. [Kenya and DR Congo agree to restore ties after tensions over conflict](https://www.bbc.co.uk/news/articles/cmvg2qnn95vro?at_medium=RSS&at_campaign=rss)
+6. [Burnham to tell MPs 'landmark' EU deal could make next decade 'much better'](https://www.bbc.co.uk/news/articles/cmde1dy82lepo?at_medium=RSS&at_campaign=rss)
+7. [Russian warship hit by Ukrainian drones in Libya, Zelensky says](https://www.bbc.co.uk/news/articles/cr894gjz0j0yo?at_medium=RSS&at_campaign=rss)
+8. [Five takeaways from the failed climate talks COP31](https://www.bbc.co.uk/news/articles/cm75237wlp3lo?at_medium=RSS&at_campaign=rss)
+9. [Behind China’s A.I. Anxieties, Fear of a Nuclear Checkmate](https://www.nytimes.com/2026/11/23/world/asia/china-us-nuclear-ai.html)
+10. [Boy, 7, pulled alive from rubble hours after Russian strike on Ukraine, rescuers say](https://www.bbc.co.uk/news/articles/cqdr15l32d3go?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
