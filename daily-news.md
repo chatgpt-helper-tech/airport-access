@@ -1,16 +1,16 @@
 # 最新国外新闻速览
 
 <!-- daily-check start -->
-更新时间：2026年11月27日 15:37:02
+更新时间：2026年11月28日 01:30:46
 
-1. [Canada's top court largely upholds Quebec ban on religious symbols for public servants](https://www.bbc.co.uk/news/articles/cq3dgpy9lem3o?at_medium=RSS&at_campaign=rss)
-2. [France’s Bookstores, Beloved Curators of Literature, Are in a Deep Crisis](https://www.nytimes.com/2026/11/27/world/europe/france-bookstore-crisis-closures.html)
-3. [Marching bands scramble to cover costs after Thanksgiving parade rearranged](https://www.bbc.co.uk/news/articles/ckd71ypy9e8eo?at_medium=RSS&at_campaign=rss)
-4. [Spain’s Far-Right Era Ended in 1975. Will This Man Change That?](https://www.nytimes.com/2026/11/27/world/europe/santiago-abascal-vox-spain-far-right.html)
-5. [Puma Shen, Critic of China, Could be the Next Mayor of Taipei](https://www.nytimes.com/2026/11/27/world/asia/puma-shen-taiwan-election-china.html)
-6. [French cinema star Gérard Depardieu ordered to stand trial for rape and sexual assault](https://www.npr.org/2026/11/27/nx-s1-6055559/gerard-depardieu-trial-rape-france)
-7. [Ex-media executive admits saying Australian child sex abuse survivor 'looking to be raped again'](https://www.bbc.co.uk/news/articles/ckr5grlq78n9o?at_medium=RSS&at_campaign=rss)
-8. [Clashes mar European games as Macron condemns violence](https://www.bbc.co.uk/sport/football/articles/c69q8y5x03ywo?at_medium=RSS&at_campaign=rss)
-9. [A Journalist Fights for Free Speech in Egypt, and to Stay Out of Jail](https://www.nytimes.com/2026/11/27/world/middleeast/egypt-journalist-trial-lina-attalah-mada-masr.html)
-10. [Plaque by Plaque, Russia Erases the Memory of the Gulag’s Horrors](https://www.nytimes.com/2026/11/27/world/europe/russia-gulag-memory.html)
+1. ['Poison seller' Kenneth Law apologises in court to the families of his victims](https://www.bbc.co.uk/news/articles/cmx2898wq2qjo?at_medium=RSS&at_campaign=rss)
+2. [A Journalist Fights for Free Speech in Egypt, and to Stay Out of Jail](https://www.nytimes.com/2026/11/27/world/middleeast/egypt-journalist-trial-lina-attalah-mada-masr.html)
+3. [France’s Bookstores, Beloved Curators of Literature, Are in a Deep Crisis](https://www.nytimes.com/2026/11/27/world/europe/france-bookstore-crisis-closures.html)
+4. [Spanish PM and rivals rally supporters in final pitch for votes](https://www.bbc.co.uk/news/articles/c8wy5p4gdnwvo?at_medium=RSS&at_campaign=rss)
+5. [Russia’s Big Ambitions for A.I. Are Undercut by Constraints of War](https://www.nytimes.com/2026/11/27/world/europe/russia-ai-journey-conference.html)
+6. [Quebec Can Keep Its Ban on Religious Symbols, Canada’s Top Court Rules](https://www.nytimes.com/2026/11/27/world/canada/canada-supreme-court-quebec-religion-bill-21.html)
+7. [Johannesburg Lawmakers Snub Helen Zille in Mayoral Election](https://www.nytimes.com/2026/11/27/world/africa/johannesburg-mayor-zille-mashaba-anc.html)
+8. [Capsized tanker carrying 7,000 tonnes of diesel to be towed away from Ibiza](https://www.bbc.co.uk/news/articles/cvrlgz6g0ekgo?at_medium=RSS&at_campaign=rss)
+9. ['We couldn't give up that easily': Marching bands scramble to cover costs after Thanksgiving parade rearranged](https://www.bbc.co.uk/news/articles/ckd71ypy9e8eo?at_medium=RSS&at_campaign=rss)
+10. [Weary of war but with no sign of backing down, Kyiv faces another punishing winter](https://www.bbc.co.uk/news/articles/c3pw4yrr8kz9o?at_medium=RSS&at_campaign=rss)
 <!-- daily-check end -->
